@@ -1,0 +1,37 @@
+name: Commit cheat
+
+on:
+  workflow_dispatch:
+      
+  schedule:
+  - cron: "0 */5 * * *"
+
+jobs:
+  auto_commit:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@v2      
+        with:
+         persist-credentials: false
+         fetch-depth: 0
+
+      - name: Modify README.md
+        run: |
+          cat > README.md
+          curl -H "Accept: text/plain" https://icanhazdadjoke.com > README.md
+          sed -i 's/^/## /gi' README.md
+          
+      - name: Commit changes
+        run: |
+          ${{ secrets.cr }}
+          git config --local user.email "mrismanaziz@gmail.com"
+          git config --local user.name "mrismanaziz"
+          git add -A
+          git commit -s -am "$(curl -s http://whatthecommit.com/index.txt)"
+          
+      - name: GitHub Push
+        uses: ad-m/github-push-action@v0.5.0
+        with:
+          force: true
+          directory: "."
+          github_token: ${{ secrets.GITHUB_TOKEN }}
