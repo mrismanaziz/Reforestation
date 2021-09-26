@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Why are pirates called pirates? Because they arrr!
