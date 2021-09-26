@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Velcro… What a rip-off.
