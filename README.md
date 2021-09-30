@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## I tried to write a chemistry joke, but could never get a reaction.
