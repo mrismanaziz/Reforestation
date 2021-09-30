@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
