@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
