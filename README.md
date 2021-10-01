@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## What did the pirate say on his 80th birthday? Aye Matey!
