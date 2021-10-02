@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
