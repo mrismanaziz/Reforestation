@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## When does a joke become a dad joke? When it becomes apparent.
