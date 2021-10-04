@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## Writing with a broken pencil is pointless.
