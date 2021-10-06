@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## What did one nut say as he chased another nut?  I'm a cashew!
