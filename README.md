@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
