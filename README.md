@@ -1,1 +1,1 @@
-## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
