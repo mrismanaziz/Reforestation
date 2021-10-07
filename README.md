@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
