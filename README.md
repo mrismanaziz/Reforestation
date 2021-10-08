@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
