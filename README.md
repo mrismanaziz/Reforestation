@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## It was raining cats and dogs the other day. I almost stepped in a poodle.
