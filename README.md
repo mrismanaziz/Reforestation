@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
