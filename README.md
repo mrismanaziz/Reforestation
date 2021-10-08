@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
