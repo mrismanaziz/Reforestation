@@ -1,1 +1,1 @@
-## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
