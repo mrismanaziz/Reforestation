@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## What do you call a careful wolf? Aware wolf.
