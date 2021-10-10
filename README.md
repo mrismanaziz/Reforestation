@@ -1,1 +1,1 @@
-## I used to be addicted to soap, but I'm clean now.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
