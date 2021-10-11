@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
