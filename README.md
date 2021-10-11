@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
