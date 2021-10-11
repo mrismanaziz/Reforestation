@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## When does a joke become a dad joke? When it becomes apparent.
