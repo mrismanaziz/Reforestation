@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
