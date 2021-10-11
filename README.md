@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
