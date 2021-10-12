@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
