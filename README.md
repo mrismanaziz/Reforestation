@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Why do fish live in salt water? Because pepper makes them sneeze!
