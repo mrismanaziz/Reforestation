@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## What do you do on a remote island? Try and find the TV island it belongs to.
