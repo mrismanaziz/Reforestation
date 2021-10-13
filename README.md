@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
