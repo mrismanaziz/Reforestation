@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## How can you tell a vampire has a cold? They start coffin.
