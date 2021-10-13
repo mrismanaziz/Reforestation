@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
