@@ -1,1 +1,2 @@
-## How can you tell a vampire has a cold? They start coffin.
+## What is red and smells like blue paint?
+## Red paint!
