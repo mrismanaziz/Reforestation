@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## It doesn't matter how much you push the envelope. It will still be stationary.
