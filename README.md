@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## How do you fix a broken pizza? With tomato paste.
