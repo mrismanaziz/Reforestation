@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
