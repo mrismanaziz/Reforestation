@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
