@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
