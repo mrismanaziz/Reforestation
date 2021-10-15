@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## Did you hear about the kidnapping at school? It's ok, he woke up.
