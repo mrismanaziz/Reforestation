@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
