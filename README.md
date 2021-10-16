@@ -1,1 +1,1 @@
-## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
+## Why did the tree go to the dentist? It needed a root canal.
