@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
