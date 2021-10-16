@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## What did the calculator say to the student? You can count on me.
