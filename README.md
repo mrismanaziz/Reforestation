@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Archaeology really is a career in ruins.
