@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
