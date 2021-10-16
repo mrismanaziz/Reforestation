@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## You can't trust a ladder. It will always let you down
