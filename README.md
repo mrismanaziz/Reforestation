@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## Why do bears have hairy coats? Fur protection.
