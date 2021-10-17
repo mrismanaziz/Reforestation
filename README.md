@@ -1,1 +1,1 @@
-## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
