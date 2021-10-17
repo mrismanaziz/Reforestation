@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
