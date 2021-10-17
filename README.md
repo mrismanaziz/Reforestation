@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
