@@ -1,1 +1,2 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
