@@ -1,1 +1,1 @@
-## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
