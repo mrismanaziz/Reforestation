@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## Why can't a bicycle stand on its own? It's two-tired.
