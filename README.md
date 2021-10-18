@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Dad, can you put my shoes on? I don't think they'll fit me.
