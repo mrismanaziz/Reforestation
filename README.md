@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## Where does Napoleon keep his armies? In his sleevies.
