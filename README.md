@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Want to hear a joke about construction? Nah, I'm still working on it.
