@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
