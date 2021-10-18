@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## Why are skeletons so calm? Because nothing gets under their skin.
