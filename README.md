@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
