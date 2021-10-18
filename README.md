@@ -1,1 +1,1 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
