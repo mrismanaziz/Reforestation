@@ -1,1 +1,1 @@
-## Where does Fonzie like to go for lunch? Chick-Fil-Eyyyyyyyy.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
