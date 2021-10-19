@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## What do you call a boomerang that won't come back? A stick.
