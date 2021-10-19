@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## I just wrote a book on reverse psychology. Do not read it!
