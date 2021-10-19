@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## What's red and bad for your teeth? A Brick.
