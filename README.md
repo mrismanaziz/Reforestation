@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Our wedding was so beautiful, even the cake was in tiers.
