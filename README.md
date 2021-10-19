@@ -1,1 +1,1 @@
-## What do vegetarian zombies eat? Grrrrrainnnnnssss.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
