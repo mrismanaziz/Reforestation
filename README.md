@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
