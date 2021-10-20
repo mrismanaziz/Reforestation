@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
