@@ -1,1 +1,1 @@
-## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
