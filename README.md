@@ -1,1 +1,1 @@
-## Two muffins were sitting in an oven, and the first looks over to the second, and says, “man, it’s really hot in here”. The second looks over at the first with a surprised look, and answers, “WHOA, a talking muffin!”
+## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
