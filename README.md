@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
