@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
