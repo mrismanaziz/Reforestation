@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
