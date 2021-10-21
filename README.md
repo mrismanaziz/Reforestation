@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
