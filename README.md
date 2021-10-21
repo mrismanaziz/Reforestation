@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## What animal is always at a game of cricket? A bat.
