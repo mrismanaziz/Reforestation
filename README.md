@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## How many South Americans does it take to change a lightbulb? A Brazilian
