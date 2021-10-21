@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## How does a dyslexic poet write? Inverse.
