@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## When is a door not a door? When it's ajar.
