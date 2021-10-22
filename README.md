@@ -1,1 +1,1 @@
-## What do you call a group of killer whales playing instruments? An Orca-stra.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
