@@ -1,1 +1,1 @@
-## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
