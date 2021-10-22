@@ -1,1 +1,1 @@
-## I am so good at sleeping I can do it with my eyes closed!
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
