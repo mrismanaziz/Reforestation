@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Want to hear a joke about construction? Nah, I'm still working on it.
