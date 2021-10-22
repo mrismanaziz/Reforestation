@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
