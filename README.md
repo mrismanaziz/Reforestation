@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
