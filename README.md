@@ -1,1 +1,1 @@
-## How many apples grow on a tree? All of them!
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
