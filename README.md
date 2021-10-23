@@ -1,1 +1,1 @@
-## Did you hear about the bread factory burning down? They say the business is toast.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
