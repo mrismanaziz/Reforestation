@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Do you know where you can get chicken broth in bulk? The stock market.
