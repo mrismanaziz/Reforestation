@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
