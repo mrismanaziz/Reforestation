@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Why didn’t the orange win the race? It ran out of juice.
