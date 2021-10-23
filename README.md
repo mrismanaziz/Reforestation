@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## My sea sickness comes in waves.
