@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## Man, I really love my furniture... me and my recliner go way back.
