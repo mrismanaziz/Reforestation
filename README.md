@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## Why do you never see elephants hiding in trees? Because they're so good at it.
