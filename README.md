@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
