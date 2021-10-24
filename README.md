@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## It's difficult to say what my wife does, she sells sea shells by the sea shore.
