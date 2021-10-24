@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## What do you get when you cross a snowman with a vampire? Frostbite.
