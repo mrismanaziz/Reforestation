@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## Why do birds fly south for the winter? Because it's too far to walk.
