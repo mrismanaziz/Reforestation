@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
