@@ -1,1 +1,2 @@
-## Geology rocks, but Geography is where it's at!
+## What is red and smells like blue paint?
+## Red paint!
