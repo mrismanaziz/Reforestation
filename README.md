@@ -1,1 +1,1 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
