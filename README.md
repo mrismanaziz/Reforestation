@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## What did the piece of bread say to the knife? Butter me up.
