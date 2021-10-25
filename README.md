@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
