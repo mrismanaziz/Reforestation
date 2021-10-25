@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## Why is the ocean always blue? Because the shore never waves back.
