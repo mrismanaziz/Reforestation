@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
