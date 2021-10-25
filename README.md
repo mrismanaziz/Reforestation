@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
