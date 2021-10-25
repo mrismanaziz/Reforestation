@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## How can you tell a vampire has a cold? They start coffin.
