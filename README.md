@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## Mountains aren't just funny, they are hill areas
