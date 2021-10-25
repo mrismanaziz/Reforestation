@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
