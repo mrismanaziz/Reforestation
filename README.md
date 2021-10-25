@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## Did you hear about the bread factory burning down? They say the business is toast.
