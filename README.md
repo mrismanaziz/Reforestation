@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
