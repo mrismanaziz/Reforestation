@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
