@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## What did one snowman say to the other snow man? Do you smell carrot?
