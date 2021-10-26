@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
