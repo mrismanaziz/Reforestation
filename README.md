@@ -1,1 +1,3 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
