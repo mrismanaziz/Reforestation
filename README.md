@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
