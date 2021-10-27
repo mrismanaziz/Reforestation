@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
