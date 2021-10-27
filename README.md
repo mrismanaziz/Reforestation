@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
