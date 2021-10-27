@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
