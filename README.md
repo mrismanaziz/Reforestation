@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Why do bees have sticky hair? Because they use honey combs!
