@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
