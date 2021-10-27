@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
