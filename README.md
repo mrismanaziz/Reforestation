@@ -1,1 +1,2 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
