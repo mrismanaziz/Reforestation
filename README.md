@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
