@@ -1,1 +1,2 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
