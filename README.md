@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
