@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
