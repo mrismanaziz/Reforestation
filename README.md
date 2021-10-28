@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
