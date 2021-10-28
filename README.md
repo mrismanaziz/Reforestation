@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## You know that cemetery up the road? People are dying to get in there.
