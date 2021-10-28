@@ -1,2 +1,2 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## What is red and smells like blue paint?
+## Red paint!
