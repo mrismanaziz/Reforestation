@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
