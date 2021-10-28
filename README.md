@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
