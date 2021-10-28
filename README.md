@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## What did the shy pebble wish for? That she was a little boulder.
