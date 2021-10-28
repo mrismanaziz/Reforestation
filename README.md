@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
