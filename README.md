@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## What creature is smarter than a talking parrot? A spelling bee.
