@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
