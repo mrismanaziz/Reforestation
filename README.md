@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
