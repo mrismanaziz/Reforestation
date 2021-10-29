@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
