@@ -1,1 +1,1 @@
-## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
