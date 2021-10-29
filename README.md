@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
