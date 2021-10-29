@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
