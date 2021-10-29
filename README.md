@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
