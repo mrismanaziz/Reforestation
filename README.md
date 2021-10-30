@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
