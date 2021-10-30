@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
