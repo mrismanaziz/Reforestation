@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## I had a dream that I was a muffler last night. I woke up exhausted!
