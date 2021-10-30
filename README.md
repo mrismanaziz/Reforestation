@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
