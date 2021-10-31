@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
