@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
