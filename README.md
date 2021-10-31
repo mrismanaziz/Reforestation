@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
