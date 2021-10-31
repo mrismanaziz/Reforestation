@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
