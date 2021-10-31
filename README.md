@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
