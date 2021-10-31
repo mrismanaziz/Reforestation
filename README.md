@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
