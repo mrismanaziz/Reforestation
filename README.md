@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## Why was the big cat disqualified from the race? Because it was a cheetah.
