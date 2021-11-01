@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## I tried to write a chemistry joke, but could never get a reaction.
