@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
