@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
