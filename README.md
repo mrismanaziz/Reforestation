@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
