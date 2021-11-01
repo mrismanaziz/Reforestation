@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
