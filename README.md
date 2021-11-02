@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## At the boxing match, the dad got into the popcorn line and the line for hot dogs, but he wanted to stay out of the punchline.
