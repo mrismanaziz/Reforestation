@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## What did one snowman say to the other snow man? Do you smell carrot?
