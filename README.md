@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## I thought about going on an all-almond diet. But that's just nuts.
