@@ -1,1 +1,2 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
