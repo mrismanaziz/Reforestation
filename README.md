@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Why was ten scared of seven? Because seven ate nine.
