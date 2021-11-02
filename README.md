@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
