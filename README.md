@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
