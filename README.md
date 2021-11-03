@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
