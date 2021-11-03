@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## I got an A on my origami assignment when I turned my paper into my teacher
