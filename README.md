@@ -1,1 +1,1 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## Why did the tree go to the dentist? It needed a root canal.
