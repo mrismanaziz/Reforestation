@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
