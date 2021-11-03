@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## My cat was just sick on the carpet, I don’t think it’s feline well.
