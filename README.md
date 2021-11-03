@@ -1,1 +1,2 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
