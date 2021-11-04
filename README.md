@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
