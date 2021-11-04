@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
