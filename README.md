@@ -1,1 +1,1 @@
-## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
