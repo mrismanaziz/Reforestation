@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
