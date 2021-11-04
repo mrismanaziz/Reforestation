@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## How many South Americans does it take to change a lightbulb? A Brazilian
