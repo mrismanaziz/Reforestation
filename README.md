@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
