@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
