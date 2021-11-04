@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## When is a door not a door? When it's ajar.
