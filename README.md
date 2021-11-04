@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Two silk worms had a race. They ended up in a tie.
