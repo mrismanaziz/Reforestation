@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## How do locomotives know where they're going? Lots of training
