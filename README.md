@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## What's orange and sounds like a parrot? A Carrot.
