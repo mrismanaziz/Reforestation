@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## An apple a day keeps the bullies away. If you throw it hard enough.
