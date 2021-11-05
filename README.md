@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Did you know crocodiles could grow up to 15 feet? But most just have 4.
