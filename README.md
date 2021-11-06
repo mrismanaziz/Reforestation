@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
