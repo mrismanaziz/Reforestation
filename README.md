@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
