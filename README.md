@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
