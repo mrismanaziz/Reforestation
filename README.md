@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
