@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
