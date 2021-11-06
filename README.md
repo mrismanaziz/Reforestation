@@ -1,1 +1,1 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
