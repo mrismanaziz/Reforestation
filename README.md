@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
