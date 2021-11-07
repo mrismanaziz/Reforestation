@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
