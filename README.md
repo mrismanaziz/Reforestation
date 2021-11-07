@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
