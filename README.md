@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
