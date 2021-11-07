@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
