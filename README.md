@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
