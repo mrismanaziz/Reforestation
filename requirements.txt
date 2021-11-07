@@ -19,6 +19,7 @@ faker
 ffmpeg-python
 fontTools
 geopy
+git+https://github.com/pyrogram/pyrogram@master
 git+https://github.com/yt-dlp/yt-dlp@master
 gitpython
 glitch_this
@@ -59,7 +60,6 @@ PyGithub
 pylast
 pymongo[srv]
 PyPDF2
-Pyrogram
 pySmartDL
 python-barcode
 python-dateutil
