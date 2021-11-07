@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## I’m reading a book on the history of glue – can’t put it down.
