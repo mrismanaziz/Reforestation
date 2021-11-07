@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## I tried to write a chemistry joke, but could never get a reaction.
