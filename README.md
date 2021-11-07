@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
