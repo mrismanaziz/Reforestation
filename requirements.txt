@@ -19,6 +19,7 @@ faker
 ffmpeg-python
 fontTools
 geopy
+git+https://github.com/yt-dlp/yt-dlp@master
 gitpython
 glitch_this
 google_images_download
@@ -91,7 +92,6 @@ wand
 wget
 wikipedia
 wordcloud
-yt-dlp
 youtube-dl
 youtube-search
 youtube-search-python==1.4.9
