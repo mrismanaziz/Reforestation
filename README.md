@@ -1,1 +1,2 @@
-## I just broke my guitar. It's okay, I won't fret
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
