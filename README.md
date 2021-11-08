@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
