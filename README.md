@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## Where do sheep go to get their hair cut? The baa-baa shop.
