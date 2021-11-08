@@ -1,1 +1,1 @@
-## Dad I’m hungry’ … ‘Hi hungry I’m dad
+## Why is the ocean always blue? Because the shore never waves back.
