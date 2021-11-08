@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
