@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## I just broke my guitar. It's okay, I won't fret
