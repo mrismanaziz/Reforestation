@@ -1,1 +1,2 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
