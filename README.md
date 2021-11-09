@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
