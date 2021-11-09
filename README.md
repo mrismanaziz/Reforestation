@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## What does a pirate pay for his corn? A buccaneer!
