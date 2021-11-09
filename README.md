@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
