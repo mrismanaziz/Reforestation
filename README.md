@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## How do you find Will Smith in the snow?  Look for fresh prints.
