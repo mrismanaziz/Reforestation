@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## What did the pirate say on his 80th birthday? Aye Matey!
