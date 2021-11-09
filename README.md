@@ -1,7 +1,1 @@
-## Wife: Honey I’m pregnant.
-## 
-## Me: Well…. what do we do now?
-## 
-## Wife: Well, I guess we should go to a baby doctor.
-## 
-## Me: Hm.. I think I’d be a lot more comfortable going to an adult doctor.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
