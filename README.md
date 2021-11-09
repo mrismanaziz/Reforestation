@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
