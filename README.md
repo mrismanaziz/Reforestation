@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## A termite walks into a bar and asks “Is the bar tender here?”
