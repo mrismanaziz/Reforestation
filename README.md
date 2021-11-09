@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
