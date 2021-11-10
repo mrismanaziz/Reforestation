@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## What does an angry pepper do? It gets jalapeño face.
