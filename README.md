@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
