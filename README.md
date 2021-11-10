@@ -1,1 +1,1 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## Whoever invented the knock-knock joke should get a no bell prize.
