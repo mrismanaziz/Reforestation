@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
