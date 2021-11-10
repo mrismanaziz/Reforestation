@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
