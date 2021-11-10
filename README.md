@@ -1,1 +1,1 @@
-## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
