@@ -1,1 +1,3 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
