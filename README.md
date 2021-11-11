@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## You know that cemetery up the road? People are dying to get in there.
