@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
