@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## Don't trust atoms. They make up everything.
