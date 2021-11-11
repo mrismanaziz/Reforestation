@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
