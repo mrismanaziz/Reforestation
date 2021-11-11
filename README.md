@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## Thanks for explaining the word "many" to me. It means a lot.
