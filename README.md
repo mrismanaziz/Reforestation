@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
