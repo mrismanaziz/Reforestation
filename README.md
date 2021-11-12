@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
