@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
