@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
