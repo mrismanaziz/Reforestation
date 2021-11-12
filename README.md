@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
