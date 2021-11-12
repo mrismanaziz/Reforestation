@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## What do you call a beehive without the b's? An eehive.
