@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
