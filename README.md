@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## Did you know that ghosts call their true love their ghoul-friend?
