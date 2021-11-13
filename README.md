@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## How do you find Will Smith in the snow?  Look for fresh prints.
