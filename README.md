@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## I'm glad I know sign language, it's pretty handy.
