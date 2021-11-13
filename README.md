@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## I wouldn't buy anything with velcro. It's a total rip-off.
