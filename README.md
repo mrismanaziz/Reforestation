@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
