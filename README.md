@@ -1,1 +1,1 @@
-## Why did the cookie cry? It was feeling crumby.
+## What do you call a fat psychic? A four-chin teller.
