@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## Why do birds fly south for the winter? Because it's too far to walk.
