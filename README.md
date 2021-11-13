@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## I’ll tell you something about German sausages, they’re the wurst
