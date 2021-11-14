@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
