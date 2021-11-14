@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## How can you tell a vampire has a cold? They start coffin.
