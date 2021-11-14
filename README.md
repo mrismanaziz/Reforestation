@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## I broke my finger at work today, on the other hand I'm completely fine.
