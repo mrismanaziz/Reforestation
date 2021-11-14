@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
