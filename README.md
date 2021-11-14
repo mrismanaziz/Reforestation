@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
