@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## I considered building the patio by myself. But I didn't have the stones.
