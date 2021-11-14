@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## Why was ten scared of seven? Because seven ate nine.
