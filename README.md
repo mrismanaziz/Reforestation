@@ -1,1 +1,1 @@
-## Where does Fonzie like to go for lunch? Chick-Fil-Eyyyyyyyy.
+## What kind of pants do ghosts wear? Boo jeans.
