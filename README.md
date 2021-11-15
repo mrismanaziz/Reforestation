@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
