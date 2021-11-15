@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
