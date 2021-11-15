@@ -1,1 +1,1 @@
-## What kind of music do planets listen to? Nep-tunes.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
