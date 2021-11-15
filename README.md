@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
