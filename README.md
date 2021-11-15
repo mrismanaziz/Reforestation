@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
