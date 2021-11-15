@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
