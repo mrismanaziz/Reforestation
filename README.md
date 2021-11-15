@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## What does an angry pepper do? It gets jalapeño face.
