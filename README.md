@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
