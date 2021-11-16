@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## To be Frank, I'd have to change my name.
