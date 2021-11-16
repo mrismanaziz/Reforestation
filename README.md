@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
