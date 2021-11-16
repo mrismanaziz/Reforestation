@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
