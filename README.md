@@ -1,1 +1,1 @@
-## To be Frank, I'd have to change my name.
+## What do you do when your bunny gets wet? You get your hare dryer.
