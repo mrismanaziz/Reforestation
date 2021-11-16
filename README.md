@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
