@@ -1,1 +1,3 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
