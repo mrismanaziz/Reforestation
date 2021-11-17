@@ -55,6 +55,7 @@ PyGithub
 pylast
 PyPDF2
 pySmartDL
+python-barcode
 pytz
 qrcode
 rarfile
