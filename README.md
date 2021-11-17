@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
