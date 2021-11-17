@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## What do you call an alligator in a vest? An in-vest-igator!
