@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## Did you know that ghosts call their true love their ghoul-friend?
