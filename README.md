@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
