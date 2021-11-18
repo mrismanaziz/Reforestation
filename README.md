@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
