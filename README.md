@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## The biggest knight at King Arthur's round table was Sir Cumference. He acquired his size from eating too much pi.
