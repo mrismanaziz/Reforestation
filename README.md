@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## Why did the m&m go to school? Because it wanted to be a Smartie!
