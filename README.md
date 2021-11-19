@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
