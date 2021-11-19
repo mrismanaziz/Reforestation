@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
