@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
