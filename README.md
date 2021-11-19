@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
