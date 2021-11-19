@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
