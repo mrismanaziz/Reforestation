@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## It's difficult to say what my wife does, she sells sea shells by the sea shore.
