@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## What time did the man go to the dentist? Tooth hurt-y.
