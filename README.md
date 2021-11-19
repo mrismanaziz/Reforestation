@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
