@@ -1,1 +1,2 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
