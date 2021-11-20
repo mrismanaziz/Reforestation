@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
