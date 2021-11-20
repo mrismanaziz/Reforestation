@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## How come a man driving a train got struck by lightning? He was a good conductor.
