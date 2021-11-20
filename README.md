@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## How was the snow globe feeling after the storm? A little shaken.
