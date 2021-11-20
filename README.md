@@ -1,1 +1,1 @@
-## As I suspected, someone has been adding soil to my garden. The plot thickens.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
