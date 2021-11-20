@@ -1,1 +1,2 @@
-## What do you call a pile of cats?  A Meowtain.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
