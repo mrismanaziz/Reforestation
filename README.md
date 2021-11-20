@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Why don't sharks eat clowns?  Because they taste funny.
