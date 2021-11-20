@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## "I'll call you later." Don't call me later, call me Dad.
