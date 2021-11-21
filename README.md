@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
