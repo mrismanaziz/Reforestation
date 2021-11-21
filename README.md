@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## I decided to sell my Hoover… well it was just collecting dust.
