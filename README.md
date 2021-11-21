@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
