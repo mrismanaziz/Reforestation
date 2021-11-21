@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
