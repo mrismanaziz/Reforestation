@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
