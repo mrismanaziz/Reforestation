@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
