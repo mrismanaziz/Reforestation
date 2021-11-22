@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## How do you find Will Smith in the snow?  Look for fresh prints.
