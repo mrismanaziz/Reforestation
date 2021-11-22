@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## Why are mummys scared of vacation? They're afraid to unwind.
