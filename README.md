@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
