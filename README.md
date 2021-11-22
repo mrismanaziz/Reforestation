@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
