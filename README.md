@@ -1,1 +1,1 @@
-## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
+## How come a man driving a train got struck by lightning? He was a good conductor.
