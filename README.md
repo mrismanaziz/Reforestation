@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
