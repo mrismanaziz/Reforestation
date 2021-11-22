@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Why do bees hum? Because they don't know the words.
