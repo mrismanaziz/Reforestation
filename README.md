@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
