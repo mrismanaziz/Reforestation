@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## What do you call a dictionary on drugs? High definition.
