@@ -1,1 +1,1 @@
-## I met this girl on a dating site and, I don't know, we just clicked.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
