@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
