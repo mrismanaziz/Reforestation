@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## I've just written a song about a tortilla. Well, it is more of a rap really.
