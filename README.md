@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## Don't tell secrets in corn fields. Too many ears around.
