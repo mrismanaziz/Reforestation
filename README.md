@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
