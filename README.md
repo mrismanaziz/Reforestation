@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
