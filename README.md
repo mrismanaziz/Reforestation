@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## How do you get two whales in a car? Start in England and drive West.
