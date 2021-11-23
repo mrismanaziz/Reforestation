@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## What's blue and not very heavy?  Light blue.
