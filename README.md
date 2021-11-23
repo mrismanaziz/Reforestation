@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
