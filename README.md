@@ -1,1 +1,3 @@
-## What did the big flower say to the littler flower? Hi, bud!
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
