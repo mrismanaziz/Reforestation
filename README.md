@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
