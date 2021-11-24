@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
