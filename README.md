@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## I ate a clock yesterday. It was so time consuming.
