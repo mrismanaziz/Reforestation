@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
