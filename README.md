@@ -1,1 +1,1 @@
-## Have you heard of the band 1023MB? They haven't got a gig yet.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
