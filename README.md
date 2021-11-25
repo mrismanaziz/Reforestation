@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
