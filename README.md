@@ -1,1 +1,2 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
