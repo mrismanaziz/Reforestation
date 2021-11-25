@@ -1,1 +1,1 @@
-## Feeling pretty proud of myself. The Sesame Street puzzle I bought said 3-5 years, but I finished it in 18 months.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
