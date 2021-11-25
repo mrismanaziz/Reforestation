@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## What do you call a dad that has fallen through the ice? A Popsicle.
