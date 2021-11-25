@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Slept like a log last night … woke up in the fireplace.
