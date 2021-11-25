@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
