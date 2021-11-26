@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
