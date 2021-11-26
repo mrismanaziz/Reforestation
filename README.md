@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## Why do pirates not know the alphabet? They always get stuck at "C".
