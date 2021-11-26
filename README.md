@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## "I'm sorry." "Hi sorry, I'm dad"
