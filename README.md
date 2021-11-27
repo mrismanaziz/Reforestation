@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
