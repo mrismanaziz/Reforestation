@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Where do rabbits go after they get married? On a bunny-moon.
