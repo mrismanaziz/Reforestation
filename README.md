@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
