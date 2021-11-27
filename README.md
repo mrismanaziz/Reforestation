@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
