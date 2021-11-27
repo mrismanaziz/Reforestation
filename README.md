@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## Geology rocks, but Geography is where it's at!
