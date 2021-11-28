@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
