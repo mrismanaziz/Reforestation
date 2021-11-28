@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
