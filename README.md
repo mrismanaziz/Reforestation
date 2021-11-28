@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
