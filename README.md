@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
