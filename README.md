@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
