@@ -1,1 +1,1 @@
-## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
