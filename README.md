@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
