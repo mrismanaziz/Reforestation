@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## Past, present, and future walked into a bar.... It was tense.
