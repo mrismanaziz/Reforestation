@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## Why are ghosts bad liars? Because you can see right through them!
