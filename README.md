@@ -1,1 +1,2 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
