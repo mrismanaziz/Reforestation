@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## I met this girl on a dating site and, I don't know, we just clicked.
