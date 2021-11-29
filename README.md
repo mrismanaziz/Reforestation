@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## There's not really any training for garbagemen. They just pick things up as they go.
