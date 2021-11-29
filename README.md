@@ -1,1 +1,3 @@
-## What do you call a fat psychic? A four-chin teller.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
