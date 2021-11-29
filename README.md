@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## How do locomotives know where they're going? Lots of training
