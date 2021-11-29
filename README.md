@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## What do you call an alligator in a vest? An in-vest-igator!
