@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
