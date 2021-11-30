@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## I just wrote a book on reverse psychology. Do not read it!
