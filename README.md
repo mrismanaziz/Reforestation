@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
