@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## what do you call a dog that can do magic tricks? a labracadabrador
