@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## How do you find Will Smith in the snow?  Look for fresh prints.
