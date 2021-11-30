@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## What kind of award did the dentist receive? A little plaque.
