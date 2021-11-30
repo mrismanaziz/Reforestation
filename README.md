@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
