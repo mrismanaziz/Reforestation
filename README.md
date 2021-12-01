@@ -1,1 +1,1 @@
-## Today, my son asked "Can I have a book mark?" and I burst into tears. 11 years old and he still doesn't know my name is Brian.
+## A Skeleton walked into a bar he said I need a beer and a mop
