@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
