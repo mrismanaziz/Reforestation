@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
