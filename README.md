@@ -1,1 +1,1 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
