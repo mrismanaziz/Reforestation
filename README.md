@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
