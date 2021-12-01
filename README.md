@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## I thought about going on an all-almond diet. But that's just nuts.
