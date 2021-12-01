@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
