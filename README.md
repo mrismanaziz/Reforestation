@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Don't trust atoms. They make up everything.
