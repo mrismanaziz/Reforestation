@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Want to hear a joke about construction? Nah, I'm still working on it.
