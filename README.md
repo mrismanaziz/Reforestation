@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## What did one nut say as he chased another nut?  I'm a cashew!
