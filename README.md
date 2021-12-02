@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
