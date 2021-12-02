@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## I ordered a chicken and an egg from Amazon. I'll let you know.
