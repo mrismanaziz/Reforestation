@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Never take advice from electrons. They are always negative.
