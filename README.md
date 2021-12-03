@@ -1,1 +1,1 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## What do you call a dad that has fallen through the ice? A Popsicle.
