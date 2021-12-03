@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
