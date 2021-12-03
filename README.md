@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## A termite walks into a bar and asks “Is the bar tender here?”
