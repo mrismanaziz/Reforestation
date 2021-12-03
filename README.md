@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## What's red and bad for your teeth? A Brick.
