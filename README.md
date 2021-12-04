@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
