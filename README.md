@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
