@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## Where does batman go to the bathroom? The batroom.
