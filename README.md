@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Why was the robot angry? Because someone kept pressing his buttons!
