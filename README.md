@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## Why was Pavlov's beard so soft?  Because he conditioned it.
