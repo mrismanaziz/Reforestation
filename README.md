@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
