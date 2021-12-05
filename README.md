@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## What did one wall say to the other wall? I'll meet you at the corner!
