@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
