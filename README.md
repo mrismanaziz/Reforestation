@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
