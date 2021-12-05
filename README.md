@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
