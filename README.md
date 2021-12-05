@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## People are making apocalypse jokes like there’s no tomorrow.
