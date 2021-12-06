@@ -1,1 +1,1 @@
-## "I'm sorry." "Hi sorry, I'm dad"
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
