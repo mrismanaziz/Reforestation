@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## What did the digital clock say to the grandfather clock? Look, no hands!
