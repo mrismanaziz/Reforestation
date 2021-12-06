@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Two guys walked into a bar, the third one ducked.
