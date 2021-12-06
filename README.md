@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## "I'm sorry." "Hi sorry, I'm dad"
