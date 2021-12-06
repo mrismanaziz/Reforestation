@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## Why do bees have sticky hair? Because they use honey combs!
