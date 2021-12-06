@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## What did the 0 say to the 8? Nice belt.
