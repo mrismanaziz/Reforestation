@@ -1,1 +1,1 @@
-## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
