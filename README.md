@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
