@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## I used to think I was indecisive, but now I'm not sure.
