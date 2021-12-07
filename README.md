@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## A magician was driving down the street and then he turned into a driveway.
