@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## To the guy who invented zero... thanks for nothing.
