@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## I used to work in a shoe recycling shop. It was sole destroying.
