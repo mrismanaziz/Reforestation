@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## I knew a guy who collected candy canes, they were all in mint condition
