@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## Where do you learn to make banana splits? At sundae school.
