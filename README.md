@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## What's blue and not very heavy?  Light blue.
