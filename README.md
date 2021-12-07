@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
