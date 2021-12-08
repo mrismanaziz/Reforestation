@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## Which side of the chicken has more feathers? The outside.
