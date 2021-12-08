@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## What has ears but cannot hear? A field of corn.
