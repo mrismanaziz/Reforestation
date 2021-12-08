@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
