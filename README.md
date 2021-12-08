@@ -1,1 +1,1 @@
-## What did the Red light say to the Green light? Don't look at me I'm changing!
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
