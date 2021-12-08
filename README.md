@@ -1,1 +1,3 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
