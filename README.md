@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
