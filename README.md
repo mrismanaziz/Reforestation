@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
