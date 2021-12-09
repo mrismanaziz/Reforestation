@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## I'd like to start a diet, but I've got too much on my plate right now.
