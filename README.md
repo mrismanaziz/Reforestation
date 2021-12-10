@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
