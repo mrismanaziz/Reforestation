@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
