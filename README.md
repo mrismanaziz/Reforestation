@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Who did the wizard marry? His ghoul-friend
