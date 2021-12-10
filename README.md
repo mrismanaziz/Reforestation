@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## Whoever invented the knock-knock joke should get a no bell prize.
