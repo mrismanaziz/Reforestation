@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
