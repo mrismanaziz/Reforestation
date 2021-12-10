@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Don't tell secrets in corn fields. Too many ears around.
