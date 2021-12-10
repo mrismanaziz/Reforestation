@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## How do you make Lady Gaga cry? Poker face. 
