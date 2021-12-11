@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## It takes guts to be an organ donor.
