@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## How come a man driving a train got struck by lightning? He was a good conductor.
