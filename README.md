@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
