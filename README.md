@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
