@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
