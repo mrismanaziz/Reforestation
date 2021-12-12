@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## I knew a guy who collected candy canes, they were all in mint condition
