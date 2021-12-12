@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
