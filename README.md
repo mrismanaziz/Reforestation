@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## How do you get a baby alien to sleep?  You rocket.
