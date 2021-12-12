@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## Why did the coffee file a police report? It got mugged.
