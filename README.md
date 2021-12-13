@@ -1,1 +1,1 @@
-## At the boxing match, the dad got into the popcorn line and the line for hot dogs, but he wanted to stay out of the punchline.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
