@@ -1,1 +1,3 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
