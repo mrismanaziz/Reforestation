@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Me and my mates are in a band called Duvet. We're a cover band.
