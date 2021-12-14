@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## I decided to sell my Hoover… well it was just collecting dust.
