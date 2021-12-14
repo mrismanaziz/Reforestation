@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## People are making apocalypse jokes like there’s no tomorrow.
