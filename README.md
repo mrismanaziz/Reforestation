@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
