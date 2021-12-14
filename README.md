@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## What time did the man go to the dentist? Tooth hurt-y.
