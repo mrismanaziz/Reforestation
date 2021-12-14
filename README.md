@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
