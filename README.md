@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## Why didn’t the skeleton cross the road? Because he had no guts.
