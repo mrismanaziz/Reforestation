@@ -1,1 +1,1 @@
-## I've just written a song about a tortilla. Well, it is more of a rap really.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
