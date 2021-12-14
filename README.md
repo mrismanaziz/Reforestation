@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## If at first you don't succeed, sky diving is not for you!
