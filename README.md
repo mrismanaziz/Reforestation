@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Why do fish live in salt water? Because pepper makes them sneeze!
