@@ -1,1 +1,1 @@
-## ‘Put the cat out’ … ‘I didn’t realize it was on fire
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
