@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
