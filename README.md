@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Why did the melons plan a big wedding? Because they cantaloupe!
