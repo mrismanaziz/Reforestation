@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## Why do birds fly south for the winter? Because it's too far to walk.
