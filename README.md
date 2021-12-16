@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## I just got fired from a florist, apparently I took too many leaves.
