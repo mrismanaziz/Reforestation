@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
