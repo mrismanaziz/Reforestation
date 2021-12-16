@@ -1,1 +1,1 @@
-## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
