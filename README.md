@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Want to hear my pizza joke? Never mind, it's too cheesy.
