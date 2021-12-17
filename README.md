@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
