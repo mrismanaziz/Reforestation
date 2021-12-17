@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
