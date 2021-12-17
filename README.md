@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Where does Napoleon keep his armies? In his sleevies.
