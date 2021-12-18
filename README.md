@@ -1,1 +1,3 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
