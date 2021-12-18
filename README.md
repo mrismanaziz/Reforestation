@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
