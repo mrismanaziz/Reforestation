@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
