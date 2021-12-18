@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## I got an A on my origami assignment when I turned my paper into my teacher
