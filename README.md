@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
