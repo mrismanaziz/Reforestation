@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
