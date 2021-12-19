@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## Why was the robot angry? Because someone kept pressing his buttons!
