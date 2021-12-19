@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
