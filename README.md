@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## How do you get two whales in a car? Start in England and drive West.
