@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## “My Dog has no nose.” “How does he smell?” “Awful”
