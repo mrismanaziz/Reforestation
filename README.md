@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## What does an angry pepper do? It gets jalapeño face.
