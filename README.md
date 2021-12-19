@@ -1,1 +1,2 @@
-## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
