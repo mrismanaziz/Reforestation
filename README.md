@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## What do you call an elephant that doesn’t matter? An irrelephant.
