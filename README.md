@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
