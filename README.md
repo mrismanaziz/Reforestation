@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
