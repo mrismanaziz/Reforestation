@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
