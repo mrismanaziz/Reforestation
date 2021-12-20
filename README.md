@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## Why was the broom late for the meeting? He overswept.
