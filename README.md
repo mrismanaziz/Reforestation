@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Why do bees have sticky hair? Because they use honey combs!
