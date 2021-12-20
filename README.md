@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
