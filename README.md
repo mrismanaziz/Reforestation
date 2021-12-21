@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## What did one wall say to the other wall? I'll meet you at the corner!
