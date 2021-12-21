@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
