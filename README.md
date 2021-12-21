@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
