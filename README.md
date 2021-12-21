@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## Coffee has a tough time at my house, every morning it gets mugged.
