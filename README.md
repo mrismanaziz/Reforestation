@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Me and my mates are in a band called Duvet. We're a cover band.
