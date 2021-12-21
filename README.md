@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
