@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
