@@ -1,3 +1,1 @@
-## How many seconds are in a year?
-## 12.
-## January 2nd, February 2nd, March 2nd, April 2nd.... etc
+## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
