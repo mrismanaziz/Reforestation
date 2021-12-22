@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
