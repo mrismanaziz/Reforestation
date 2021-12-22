@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
