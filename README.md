@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
