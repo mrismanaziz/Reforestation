@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## Why did the scarecrow win an award? Because he was outstanding in his field.
