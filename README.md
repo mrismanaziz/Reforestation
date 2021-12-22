@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
