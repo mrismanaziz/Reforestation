@@ -1,1 +1,1 @@
-## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
