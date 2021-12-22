@@ -1,1 +1,1 @@
-## I am so good at sleeping I can do it with my eyes closed!
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
