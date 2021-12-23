@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
