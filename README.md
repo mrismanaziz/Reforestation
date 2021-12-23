@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## Why do pirates not know the alphabet? They always get stuck at "C".
