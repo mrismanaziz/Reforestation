@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
