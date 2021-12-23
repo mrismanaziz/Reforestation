@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Without geometry life is pointless.
