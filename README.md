@@ -1,1 +1,1 @@
-## Can February march? No, but April may.
+## What do you call a duck that gets all A's? A wise quacker.
