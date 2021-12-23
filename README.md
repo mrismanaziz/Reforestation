@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
