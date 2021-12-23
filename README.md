@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## Why didn’t the skeleton cross the road? Because he had no guts.
