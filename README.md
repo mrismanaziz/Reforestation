@@ -1,1 +1,1 @@
-## Where does Fonzie like to go for lunch? Chick-Fil-Eyyyyyyyy.
+## Why are ghosts bad liars? Because you can see right through them!
