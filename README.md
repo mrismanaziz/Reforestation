@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
