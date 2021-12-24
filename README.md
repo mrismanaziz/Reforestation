@@ -1,2 +1,1 @@
-## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
-## "Pop," goes the weasel.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
