@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## Some people say that comedians who tell one too many light bulb jokes soon burn out, but they don't know watt they are talking about. They're not that bright.
