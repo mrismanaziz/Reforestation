@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## When do doctors get angry? When they run out of patients.
