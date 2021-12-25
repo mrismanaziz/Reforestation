@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## How come a man driving a train got struck by lightning? He was a good conductor.
