@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
