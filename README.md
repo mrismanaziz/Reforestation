@@ -1,1 +1,1 @@
-## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
