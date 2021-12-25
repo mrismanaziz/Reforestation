@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
