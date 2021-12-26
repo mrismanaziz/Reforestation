@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
