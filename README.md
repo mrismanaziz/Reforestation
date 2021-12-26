@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Whoever invented the knock-knock joke should get a no bell prize.
