@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## Why did the kid throw the clock out the window? He wanted to see time fly!
