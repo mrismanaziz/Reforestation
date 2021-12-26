@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## I used to work in a shoe recycling shop. It was sole destroying.
