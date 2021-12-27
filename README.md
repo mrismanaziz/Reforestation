@@ -1,1 +1,1 @@
-## What did the pirate say on his 80th birthday? Aye Matey!
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
