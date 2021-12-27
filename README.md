@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## I’m on a whiskey diet. I’ve lost three days already.
