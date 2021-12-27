@@ -1,1 +1,1 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## Remember, the best angle to approach a problem from is the "try" angle.
