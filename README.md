@@ -1,1 +1,1 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
