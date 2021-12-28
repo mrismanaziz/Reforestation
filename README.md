@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
