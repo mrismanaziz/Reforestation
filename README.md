@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
