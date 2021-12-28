@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Why did the kid throw the clock out the window? He wanted to see time fly!
