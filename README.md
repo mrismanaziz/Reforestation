@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
