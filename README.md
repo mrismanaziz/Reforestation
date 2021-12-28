@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
