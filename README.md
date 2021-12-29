@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
