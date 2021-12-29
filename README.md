@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## What did one plate say to the other plate? Dinner is on me!
