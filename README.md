@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## Why was the robot angry? Because someone kept pressing his buttons!
