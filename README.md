@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
