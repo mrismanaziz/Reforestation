@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
