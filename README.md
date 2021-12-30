@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
