@@ -1,1 +1,1 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
