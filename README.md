@@ -1,1 +1,1 @@
-## What do I look like? A JOKE MACHINE!?
+## Why did the octopus beat the shark in a fight? Because it was well armed.
