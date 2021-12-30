@@ -1,1 +1,1 @@
-## The biggest knight at King Arthur's round table was Sir Cumference. He acquired his size from eating too much pi.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
