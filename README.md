@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
