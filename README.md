@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## What creature is smarter than a talking parrot? A spelling bee.
