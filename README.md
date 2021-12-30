@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
