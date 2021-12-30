@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
