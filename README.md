@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## Ever wondered why bees hum? It's because they don't know the words.
