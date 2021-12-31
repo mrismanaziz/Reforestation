@@ -1,1 +1,1 @@
-## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
