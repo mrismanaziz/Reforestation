@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
