@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
