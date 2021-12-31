@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
