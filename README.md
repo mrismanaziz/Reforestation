@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## Why is the ocean always blue? Because the shore never waves back.
