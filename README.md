@@ -1,1 +1,1 @@
-## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
