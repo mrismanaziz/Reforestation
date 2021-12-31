@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
