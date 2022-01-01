@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## A Skeleton walked into a bar he said I need a beer and a mop
