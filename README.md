@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## How do you get two whales in a car? Start in England and drive West.
