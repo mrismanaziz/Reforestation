@@ -1,1 +1,1 @@
-## I used to be addicted to soap, but I'm clean now.
+## What do you call a bear with no teeth? A gummy bear!
