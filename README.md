@@ -1,1 +1,1 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
