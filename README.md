@@ -1,1 +1,2 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## Where do cats write notes?
+## Scratch Paper!
