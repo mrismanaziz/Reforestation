@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Mountains aren't just funny, they are hill areas
