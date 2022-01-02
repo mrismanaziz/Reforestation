@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
