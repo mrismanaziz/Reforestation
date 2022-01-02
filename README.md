@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## Why did the house go to the doctor? It was having window panes.
