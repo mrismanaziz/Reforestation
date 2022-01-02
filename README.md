@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## My cat was just sick on the carpet, I don’t think it’s feline well.
