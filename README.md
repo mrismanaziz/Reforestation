@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## How many tickles does it take to tickle an octopus? Ten-tickles!
