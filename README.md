@@ -1,1 +1,1 @@
-## My cat was just sick on the carpet, I don’t think it’s feline well.
+## Me and my mates are in a band called Duvet. We're a cover band.
