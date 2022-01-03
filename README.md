@@ -1,1 +1,1 @@
-## What kind of music do mummy's like? Rap
+## Why did the melons plan a big wedding? Because they cantaloupe!
