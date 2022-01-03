@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
