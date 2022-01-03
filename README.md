@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
