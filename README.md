@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## I used to work in a shoe recycling shop. It was sole destroying.
