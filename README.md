@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Where do hamburgers go to dance? The meat-ball.
