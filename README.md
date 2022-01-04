@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
