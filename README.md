@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## It doesn't matter how much you push the envelope. It will still be stationary.
