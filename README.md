@@ -1,1 +1,1 @@
-## Can February march? No, but April may.
+## Where does Napoleon keep his armies? In his sleevies.
