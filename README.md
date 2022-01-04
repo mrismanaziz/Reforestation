@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
