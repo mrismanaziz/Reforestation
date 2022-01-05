@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Without geometry life is pointless.
