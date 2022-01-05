@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
