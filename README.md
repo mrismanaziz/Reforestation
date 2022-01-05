@@ -1,1 +1,2 @@
-## What do you call a cow on a trampoline? A milk shake!
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
