@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## I just got fired from a florist, apparently I took too many leaves.
