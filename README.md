@@ -1,1 +1,1 @@
-## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
+## Don't tell secrets in corn fields. Too many ears around.
