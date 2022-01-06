@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
