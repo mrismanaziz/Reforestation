@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## What do you call corn that joins the army? Kernel.
