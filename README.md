@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
