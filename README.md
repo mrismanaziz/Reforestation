@@ -1,1 +1,1 @@
-## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
