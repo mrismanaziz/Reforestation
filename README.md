@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## What creature is smarter than a talking parrot? A spelling bee.
