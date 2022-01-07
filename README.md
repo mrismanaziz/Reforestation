@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
