@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
