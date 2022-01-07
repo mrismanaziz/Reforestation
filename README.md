@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
