@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
