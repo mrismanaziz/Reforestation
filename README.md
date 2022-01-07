@@ -1,1 +1,1 @@
-## I think circles are pointless.
+## What do you call a droid that takes the long way around? R2 detour.
