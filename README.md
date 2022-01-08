@@ -1,1 +1,1 @@
-## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
+## What did the digital clock say to the grandfather clock? Look, no hands!
