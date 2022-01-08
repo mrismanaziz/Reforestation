@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
