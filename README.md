@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## How do you find Will Smith in the snow?  Look for fresh prints.
