@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
