@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## When does a joke become a dad joke? When it becomes apparent.
