@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
