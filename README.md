@@ -1,1 +1,2 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
