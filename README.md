@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## How does Darth Vader like his toast? On the dark side.
