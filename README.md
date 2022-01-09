@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## Why was the robot angry? Because someone kept pressing his buttons!
