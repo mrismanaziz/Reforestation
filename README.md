@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## What time did the man go to the dentist? Tooth hurt-y.
