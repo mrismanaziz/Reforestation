@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
