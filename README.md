@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
