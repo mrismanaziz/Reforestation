@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## Why is the ocean always blue? Because the shore never waves back.
