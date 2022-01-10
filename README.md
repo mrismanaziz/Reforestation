@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## I went to the doctor today and he told me I had type A blood but it was a type O.
