@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## A steak pun is a rare medium well done.
