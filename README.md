@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## What's red and bad for your teeth? A Brick.
