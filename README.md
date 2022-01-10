@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
