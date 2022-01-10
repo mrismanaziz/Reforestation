@@ -1,1 +1,2 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
