@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
