@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Why are graveyards so noisy? Because of all the coffin.
