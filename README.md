@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## What's blue and not very heavy?  Light blue.
