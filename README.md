@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## Whoever invented the knock-knock joke should get a no bell prize.
