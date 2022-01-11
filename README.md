@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
