@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## Ever wondered why bees hum? It's because they don't know the words.
