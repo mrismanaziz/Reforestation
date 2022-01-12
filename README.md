@@ -1,1 +1,2 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
