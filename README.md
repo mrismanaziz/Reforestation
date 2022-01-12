@@ -1,1 +1,2 @@
-## What kind of music do mummy's like? Rap
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
