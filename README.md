@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## I'm glad I know sign language, it's pretty handy.
