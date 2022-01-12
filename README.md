@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## The biggest knight at King Arthur's round table was Sir Cumference. He acquired his size from eating too much pi.
