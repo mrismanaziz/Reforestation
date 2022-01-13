@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
