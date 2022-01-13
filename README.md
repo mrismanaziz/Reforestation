@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
