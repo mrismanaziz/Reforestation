@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Why did the tree go to the dentist? It needed a root canal.
