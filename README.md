@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## A Skeleton walked into a bar he said I need a beer and a mop
