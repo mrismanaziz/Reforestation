@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
