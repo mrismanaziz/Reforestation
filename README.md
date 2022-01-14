@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Why did the belt go to prison? He held up a pair of pants!
