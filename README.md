@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## I knew a guy who collected candy canes, they were all in mint condition
