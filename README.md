@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## Where did Captain Hook get his hook? From a second hand store.
