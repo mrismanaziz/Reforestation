@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## I was wondering why the frisbee was getting bigger, then it hit me.
