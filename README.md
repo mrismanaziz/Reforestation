@@ -1,1 +1,1 @@
-## What do you call cheese by itself? Provolone.
+## I tried to write a chemistry joke, but could never get a reaction.
