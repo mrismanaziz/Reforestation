@@ -1,1 +1,3 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
