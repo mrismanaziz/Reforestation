@@ -1,1 +1,1 @@
-## What did the big flower say to the littler flower? Hi, bud!
+## Me and my mates are in a band called Duvet. We're a cover band.
