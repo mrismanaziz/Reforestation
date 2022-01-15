@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
