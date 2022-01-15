@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
