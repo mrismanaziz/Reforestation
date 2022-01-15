@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
