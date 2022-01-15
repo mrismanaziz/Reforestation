@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
