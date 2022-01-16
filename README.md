@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
