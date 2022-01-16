@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## There's not really any training for garbagemen. They just pick things up as they go.
