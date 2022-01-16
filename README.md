@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
