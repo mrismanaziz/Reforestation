@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## I’m on a whiskey diet. I’ve lost three days already.
