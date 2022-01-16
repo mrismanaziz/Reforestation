@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Writing with a broken pencil is pointless.
