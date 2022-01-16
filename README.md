@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
