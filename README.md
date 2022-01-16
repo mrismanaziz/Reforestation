@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## I'm glad I know sign language, it's pretty handy.
