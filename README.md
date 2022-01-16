@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## I’m on a whiskey diet. I’ve lost three days already.
