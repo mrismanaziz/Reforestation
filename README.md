@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## I was in an 80's band called the prevention. We were better than the cure.
