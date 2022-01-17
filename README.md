@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## An apple a day keeps the bullies away. If you throw it hard enough.
