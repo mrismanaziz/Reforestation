@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## I couldn't get a reservation at the library. They were completely booked.
