@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
