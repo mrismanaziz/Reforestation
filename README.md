@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## What did the fish say when it swam into a wall? Damn!
