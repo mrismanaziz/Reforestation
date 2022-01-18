@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
