@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
