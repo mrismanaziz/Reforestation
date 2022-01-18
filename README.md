@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
