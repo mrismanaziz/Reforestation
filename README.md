@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
