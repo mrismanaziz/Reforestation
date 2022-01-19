@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
