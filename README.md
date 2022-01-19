@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
