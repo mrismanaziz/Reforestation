@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
