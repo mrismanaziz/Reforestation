@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## What do you get when you cross a bee and a sheep? A bah-humbug.
