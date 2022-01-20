@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## If two vegans are having an argument, is it still considered beef?
