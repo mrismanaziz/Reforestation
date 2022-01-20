@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## My dentist is the best, he even has a little plaque!
