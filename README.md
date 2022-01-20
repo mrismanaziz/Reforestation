@@ -1,1 +1,2 @@
-## How does a French skeleton say hello? Bone-jour.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
