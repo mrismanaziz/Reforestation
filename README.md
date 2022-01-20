@@ -1,1 +1,2 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
