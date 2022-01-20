@@ -1,1 +1,1 @@
-## What kind of music do mummy's like? Rap
+## How does a French skeleton say hello? Bone-jour.
