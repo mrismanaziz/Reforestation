@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## Why are fish easy to weigh? Because they have their own scales.
