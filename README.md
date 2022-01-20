@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
