@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
