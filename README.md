@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
