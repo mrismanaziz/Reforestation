@@ -1,1 +1,1 @@
-## What do you get when you cross a bee and a sheep? A bah-humbug.
+## Why did the tomato blush? Because it saw the salad dressing.
