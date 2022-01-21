@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
