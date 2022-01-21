@@ -1,1 +1,1 @@
-## I used to be addicted to soap, but I'm clean now.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
