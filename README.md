@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## Our wedding was so beautiful, even the cake was in tiers.
