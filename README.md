@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## The biggest knight at King Arthur's round table was Sir Cumference. He acquired his size from eating too much pi.
