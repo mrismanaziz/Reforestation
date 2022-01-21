@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
