@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## What do you call a droid that takes the long way around? R2 detour.
