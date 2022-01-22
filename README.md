@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## “My Dog has no nose.” “How does he smell?” “Awful”
