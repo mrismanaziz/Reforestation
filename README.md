@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## Two peanuts were walking down the street. One was a salted.
