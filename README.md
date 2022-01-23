@@ -1,1 +1,3 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
