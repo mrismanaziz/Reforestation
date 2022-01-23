@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
