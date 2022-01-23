@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## What does an angry pepper do? It gets jalapeño face.
