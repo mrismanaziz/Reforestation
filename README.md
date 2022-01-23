@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## Ever wondered why bees hum? It's because they don't know the words.
