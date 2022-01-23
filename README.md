@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## How come the stadium got hot after the game? Because all of the fans left.
