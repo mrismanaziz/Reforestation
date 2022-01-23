@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## What did the ocean say to the beach? Thanks for all the sediment.
