@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
