@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
