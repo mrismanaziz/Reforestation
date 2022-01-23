@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
