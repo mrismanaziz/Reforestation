@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## What did the big flower say to the littler flower? Hi, bud!
