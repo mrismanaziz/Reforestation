@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
