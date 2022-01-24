@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
