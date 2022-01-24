@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
