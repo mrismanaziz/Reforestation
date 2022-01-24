@@ -1,5 +1,3 @@
-## Me: If humans lose the ability to hear high frequency volumes as they get older, can my 4 week old son hear a dog whistle?
-## 
-## Doctor: No, humans can never hear that high of a frequency no matter what age they are.
-## 
-## Me: Trick question... dogs can't whistle.
+## Mahatma Gandhi, as you know, walked barefoot most of the time, which produced an impressive set of calluses on his feet. 
+## He also ate very little, which made him rather frail and with his odd diet, he suffered from bad breath. 
+## This made him a super calloused fragile mystic hexed by halitosis.
