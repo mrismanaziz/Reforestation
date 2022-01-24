@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
