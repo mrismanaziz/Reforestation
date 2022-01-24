@@ -78,6 +78,7 @@ urbandict
 validators
 vcsi
 wand
+webpage2telegraph
 wget
 wikipedia
 wordcloud
