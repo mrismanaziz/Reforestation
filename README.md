@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Why are mummys scared of vacation? They're afraid to unwind.
