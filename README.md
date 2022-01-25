@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
