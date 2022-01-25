@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
