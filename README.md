@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
