@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
