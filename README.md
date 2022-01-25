@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
