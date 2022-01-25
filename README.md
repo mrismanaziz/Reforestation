@@ -1,1 +1,1 @@
-## Camping is intense.
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
