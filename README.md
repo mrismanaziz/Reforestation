@@ -1,2 +1,1 @@
-##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
-## 
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
