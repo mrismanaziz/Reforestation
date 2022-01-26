@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
