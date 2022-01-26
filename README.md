@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
