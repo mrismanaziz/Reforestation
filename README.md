@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
