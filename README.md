@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Why do bees have sticky hair? Because they use honey combs!
