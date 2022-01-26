@@ -1,1 +1,1 @@
-## The invention of the wheel was what got things rolling
+## Why didn’t the skeleton cross the road? Because he had no guts.
