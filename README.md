@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## What’s E.T. short for? He’s only got little legs.
