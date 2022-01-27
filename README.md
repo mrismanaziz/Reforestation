@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Conjunctivitis.com – now that’s a site for sore eyes.
