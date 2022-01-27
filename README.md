@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## What kind of pants do ghosts wear? Boo jeans.
