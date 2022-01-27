@@ -1,1 +1,2 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## Where do cats write notes?
+## Scratch Paper!
