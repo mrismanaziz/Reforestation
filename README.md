@@ -1,1 +1,1 @@
-## My first time using an elevator was an uplifting experience. The second time let me down.
+## Why is the ocean always blue? Because the shore never waves back.
