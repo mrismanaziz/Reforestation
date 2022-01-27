@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
