@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Why are ghosts bad liars? Because you can see right through them!
