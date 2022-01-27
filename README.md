@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## My first time using an elevator was an uplifting experience. The second time let me down.
