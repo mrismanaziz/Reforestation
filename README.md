@@ -1,1 +1,2 @@
-## What do vegetarian zombies eat? Grrrrrainnnnnssss.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
