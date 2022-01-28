@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## How do you find Will Smith in the snow?  Look for fresh prints.
