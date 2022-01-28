@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
