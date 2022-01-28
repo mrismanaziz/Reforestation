@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## Why is the ocean always blue? Because the shore never waves back.
