@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## What does a pirate pay for his corn? A buccaneer!
