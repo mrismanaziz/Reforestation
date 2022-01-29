@@ -1,1 +1,2 @@
-## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
