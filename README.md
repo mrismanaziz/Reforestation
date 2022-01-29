@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
