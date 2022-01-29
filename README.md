@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## Where do rabbits go after they get married? On a bunny-moon.
