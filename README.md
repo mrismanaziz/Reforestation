@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Why did the kid cross the playground? To get to the other slide.
