@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## What did one wall say to the other wall? I'll meet you at the corner!
