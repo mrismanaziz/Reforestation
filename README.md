@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
