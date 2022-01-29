@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## How many South Americans does it take to change a lightbulb? A Brazilian
