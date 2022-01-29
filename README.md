@@ -1,1 +1,1 @@
-## What do you call cheese by itself? Provolone.
+## Some people eat light bulbs. They say it's a nice light snack.
