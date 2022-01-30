@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## What do you call a monkey in a mine field? A babooooom!
