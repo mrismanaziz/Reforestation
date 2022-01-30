@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## Velcro… What a rip-off.
