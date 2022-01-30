@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
