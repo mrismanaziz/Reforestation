@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
