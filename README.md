@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## This morning I was wondering where the sun was, but then it dawned on me.
