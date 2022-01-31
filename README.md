@@ -1,1 +1,1 @@
-## I met this girl on a dating site and, I don't know, we just clicked.
+## When is a door not a door? When it's ajar.
