@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## what do you call a dog that can do magic tricks? a labracadabrador
