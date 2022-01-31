@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## This furniture store keeps emailing me, all I wanted was one night stand!
