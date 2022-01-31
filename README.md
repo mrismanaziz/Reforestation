@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
