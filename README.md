@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## I was going to get a brain transplant, but I changed my mind
