@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## Our wedding was so beautiful, even the cake was in tiers.
