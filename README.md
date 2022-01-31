@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Where do young cows eat lunch? In the calf-ateria.
