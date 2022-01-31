@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Sore throats are a pain in the neck!
