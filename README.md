@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## What do you call an elephant that doesn’t matter? An irrelephant.
