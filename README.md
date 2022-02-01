@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Why did the tree go to the dentist? It needed a root canal.
