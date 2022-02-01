@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
