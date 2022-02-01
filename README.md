@@ -1,1 +1,1 @@
-## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
+## I just broke my guitar. It's okay, I won't fret
