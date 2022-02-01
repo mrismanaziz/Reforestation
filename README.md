@@ -1,1 +1,3 @@
-## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
