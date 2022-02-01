@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## What is a witch's favorite subject in school? Spelling!
