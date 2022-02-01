@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## How do you make a hankie dance? Put a little boogie in it.
