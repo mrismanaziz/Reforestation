@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## I just got fired from a florist, apparently I took too many leaves.
