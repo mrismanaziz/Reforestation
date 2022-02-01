@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## Thanks for explaining the word "many" to me. It means a lot.
