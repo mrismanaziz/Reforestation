@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
