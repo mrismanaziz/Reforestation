@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
