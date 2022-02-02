@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## How does the moon cut his hair? Eclipse it.
