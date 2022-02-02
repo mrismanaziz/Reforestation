@@ -1,1 +1,1 @@
-## What do you do on a remote island? Try and find the TV island it belongs to.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
