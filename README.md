@@ -1,1 +1,2 @@
-## How does the moon cut his hair? Eclipse it.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
