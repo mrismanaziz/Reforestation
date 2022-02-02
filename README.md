@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## What time did the man go to the dentist? Tooth hurt-y.
