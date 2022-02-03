@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Why is the ocean always blue? Because the shore never waves back.
