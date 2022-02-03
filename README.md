@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## Why do pirates not know the alphabet? They always get stuck at "C".
