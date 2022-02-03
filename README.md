@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
