@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
