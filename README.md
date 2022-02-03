@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## What did the left eye say to the right eye? Between us, something smells!
