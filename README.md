@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## Want to hear a joke about construction? Nah, I'm still working on it.
