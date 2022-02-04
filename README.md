@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
