@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## How does a French skeleton say hello? Bone-jour.
