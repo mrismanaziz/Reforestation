@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## What time did the man go to the dentist? Tooth hurt-y.
