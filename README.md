@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## Why is the ocean always blue? Because the shore never waves back.
