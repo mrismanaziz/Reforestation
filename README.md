@@ -1,1 +1,1 @@
-## Have you heard of the band 1023MB? They haven't got a gig yet.
+## You can't trust a ladder. It will always let you down
