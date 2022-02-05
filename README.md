@@ -1,1 +1,1 @@
-## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
+## “My Dog has no nose.” “How does he smell?” “Awful”
