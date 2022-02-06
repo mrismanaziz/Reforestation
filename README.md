@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## "I'm sorry." "Hi sorry, I'm dad"
