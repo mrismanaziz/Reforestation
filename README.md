@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## Why is the ocean always blue? Because the shore never waves back.
