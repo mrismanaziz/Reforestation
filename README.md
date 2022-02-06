@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
