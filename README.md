@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## I heard there was a new store called Moderation. They have everything there
