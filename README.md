@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
