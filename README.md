@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
