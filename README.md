@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Did you hear about the kidnapping at school? It's ok, he woke up.
