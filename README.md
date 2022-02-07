@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
