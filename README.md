@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
