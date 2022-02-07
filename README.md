@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## I'm glad I know sign language, it's pretty handy.
