@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
