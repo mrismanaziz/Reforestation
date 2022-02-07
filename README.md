@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## What do you get hanging from Apple trees? Sore arms.
