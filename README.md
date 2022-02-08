@@ -1,1 +1,1 @@
-## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
+## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
