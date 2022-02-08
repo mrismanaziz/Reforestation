@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
