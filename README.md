@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
