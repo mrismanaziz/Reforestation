@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
