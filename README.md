@@ -1,1 +1,2 @@
-## What is a centipedes's favorite Beatle song?  I want to hold your hand, hand, hand, hand...
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
