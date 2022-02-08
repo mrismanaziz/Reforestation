@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
