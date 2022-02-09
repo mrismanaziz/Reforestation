@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
