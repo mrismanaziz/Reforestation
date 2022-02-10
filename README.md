@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## This morning I was wondering where the sun was, but then it dawned on me.
