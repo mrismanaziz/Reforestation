@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## Why was the robot angry? Because someone kept pressing his buttons!
