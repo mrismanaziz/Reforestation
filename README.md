@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## What kind of dinosaur loves to sleep? A stega-snore-us.
