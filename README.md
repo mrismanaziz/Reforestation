@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## Remember, the best angle to approach a problem from is the "try" angle.
