@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## Why do mathematicians hate the U.S.? Because it's indivisible.
