@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## Two peanuts were walking down the street. One was a salted.
