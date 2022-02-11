@@ -1,1 +1,2 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
