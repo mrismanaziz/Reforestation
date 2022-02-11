@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## What is a witch's favorite subject in school? Spelling!
