@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
