@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
