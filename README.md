@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## What do you do on a remote island? Try and find the TV island it belongs to.
