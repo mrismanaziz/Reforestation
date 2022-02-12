@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
