@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
