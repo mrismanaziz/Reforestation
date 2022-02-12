@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## What does a clock do when it's hungry? It goes back four seconds!
