@@ -1,1 +1,2 @@
-## Two peanuts were walking down the street. One was a salted.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
