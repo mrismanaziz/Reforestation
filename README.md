@@ -1,1 +1,1 @@
-## Have you heard of the band 1023MB? They haven't got a gig yet.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
