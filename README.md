@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
