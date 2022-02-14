@@ -1,1 +1,1 @@
-## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
