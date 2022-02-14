@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
