@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## I used to work in a shoe recycling shop. It was sole destroying.
