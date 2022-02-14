@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
