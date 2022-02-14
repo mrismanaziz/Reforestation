@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## Chances are if you' ve seen one shopping center, you've seen a mall.
