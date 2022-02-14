@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
