@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Why was ten scared of seven? Because seven ate nine.
