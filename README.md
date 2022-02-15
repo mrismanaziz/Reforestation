@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
