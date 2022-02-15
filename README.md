@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## I knew a guy who collected candy canes, they were all in mint condition
