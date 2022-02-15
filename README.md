@@ -1,1 +1,2 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## What is the best way to carve?
+## Whittle by whittle.
