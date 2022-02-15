@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
