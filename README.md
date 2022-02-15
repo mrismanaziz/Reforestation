@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
