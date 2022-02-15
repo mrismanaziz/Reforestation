@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## If two vegans are having an argument, is it still considered beef?
