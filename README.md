@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## What do you call a pig that knows karate? A pork chop!
