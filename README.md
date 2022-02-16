@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
