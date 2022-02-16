@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Why did the melons plan a big wedding? Because they cantaloupe!
