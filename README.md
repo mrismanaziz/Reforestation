@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## Where did Captain Hook get his hook? From a second hand store.
