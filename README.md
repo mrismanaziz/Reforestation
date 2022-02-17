@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## I decided to sell my Hoover… well it was just collecting dust.
