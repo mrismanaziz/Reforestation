@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## How do you get two whales in a car? Start in England and drive West.
