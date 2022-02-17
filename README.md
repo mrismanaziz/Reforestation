@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## I couldn't get a reservation at the library. They were completely booked.
