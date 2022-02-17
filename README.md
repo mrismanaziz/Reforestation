@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Why did the belt go to prison? He held up a pair of pants!
