@@ -1,1 +1,1 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
