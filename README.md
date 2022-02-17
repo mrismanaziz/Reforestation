@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
