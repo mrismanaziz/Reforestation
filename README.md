@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## "I'm sorry." "Hi sorry, I'm dad"
