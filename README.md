@@ -1,1 +1,1 @@
-## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
