@@ -1,1 +1,2 @@
-## "What time is it?" I don't know... it keeps changing.
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
