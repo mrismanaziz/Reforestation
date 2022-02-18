@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## What did the ocean say to the beach? Thanks for all the sediment.
