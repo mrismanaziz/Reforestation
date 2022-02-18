@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Why do choirs keep buckets handy? So they can carry their tune
