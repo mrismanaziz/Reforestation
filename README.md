@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
