@@ -1,1 +1,1 @@
-## How do you make a water bed more bouncy. You use Spring Water
+## Why did the tree go to the dentist? It needed a root canal.
