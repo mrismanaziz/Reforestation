@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## What kind of bagel can fly? A plain bagel.
