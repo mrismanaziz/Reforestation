@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## What has ears but cannot hear? A field of corn.
