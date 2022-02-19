@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
