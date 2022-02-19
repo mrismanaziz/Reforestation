@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## I knew a guy who collected candy canes, they were all in mint condition
