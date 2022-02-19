@@ -1,1 +1,1 @@
-## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+## Leather is great for sneaking around because it's made of hide.
