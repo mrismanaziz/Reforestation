@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## Why are ghosts bad liars? Because you can see right through them!
