@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Remember, the best angle to approach a problem from is the "try" angle.
