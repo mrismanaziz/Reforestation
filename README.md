@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## Whoever invented the knock-knock joke should get a no bell prize.
