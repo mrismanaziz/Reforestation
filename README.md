@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
