@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## The rotation of earth really makes my day.
