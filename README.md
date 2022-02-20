@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
