@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
