@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
