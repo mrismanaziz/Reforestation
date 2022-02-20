@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
