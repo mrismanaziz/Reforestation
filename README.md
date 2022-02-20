@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
