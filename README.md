@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Why was it called the dark ages? Because of all the knights. 
