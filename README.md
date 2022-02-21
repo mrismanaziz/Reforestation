@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
