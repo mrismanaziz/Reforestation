@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
