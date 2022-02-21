@@ -1,1 +1,1 @@
-## I met this girl on a dating site and, I don't know, we just clicked.
+## My boss told me to have a good day... so I went home.
