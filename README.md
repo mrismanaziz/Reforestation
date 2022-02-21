@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## Why do fish live in salt water? Because pepper makes them sneeze!
