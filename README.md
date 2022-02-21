@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## How do you make a hankie dance? Put a little boogie in it.
