@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## The best time on a clock is 6:30--hands down.
