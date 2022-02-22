@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## What do you call a magician who has lost their magic? Ian.
