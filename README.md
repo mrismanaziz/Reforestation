@@ -1,1 +1,2 @@
-## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
