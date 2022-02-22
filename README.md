@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
