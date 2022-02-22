@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## What's the best thing about elevator jokes? They work on so many levels.
