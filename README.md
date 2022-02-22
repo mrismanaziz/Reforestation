@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
