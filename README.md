@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## I used to work for a soft drink can crusher. It was soda pressing.
