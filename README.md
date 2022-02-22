@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
