@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
