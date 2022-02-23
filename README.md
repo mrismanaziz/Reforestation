@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
