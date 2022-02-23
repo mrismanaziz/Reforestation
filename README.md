@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
