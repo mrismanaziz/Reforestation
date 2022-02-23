@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## Where’s the bin? Dad: I haven’t been anywhere!
