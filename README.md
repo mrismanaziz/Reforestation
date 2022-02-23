@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
