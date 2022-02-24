@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
