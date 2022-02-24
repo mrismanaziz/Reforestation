@@ -1,1 +1,1 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
