@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## What did the piece of bread say to the knife? Butter me up.
