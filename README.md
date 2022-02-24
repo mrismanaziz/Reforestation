@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## What do you call a cow with no legs? Ground beef.
