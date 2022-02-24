@@ -1,2 +1,1 @@
-## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
-## "Pop," goes the weasel.
+## This furniture store keeps emailing me, all I wanted was one night stand!
