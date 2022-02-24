@@ -1,1 +1,1 @@
-## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
