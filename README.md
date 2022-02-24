@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
