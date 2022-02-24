@@ -1,1 +1,2 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+## "Pop," goes the weasel.
