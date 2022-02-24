@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
