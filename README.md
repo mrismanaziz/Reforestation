@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## How was the snow globe feeling after the storm? A little shaken.
