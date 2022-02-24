@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
