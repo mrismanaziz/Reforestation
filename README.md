@@ -1,1 +1,2 @@
-## What did the 0 say to the 8? Nice belt.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
