@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## Why was the big cat disqualified from the race? Because it was a cheetah.
