@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Why do pirates not know the alphabet? They always get stuck at "C".
