@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
