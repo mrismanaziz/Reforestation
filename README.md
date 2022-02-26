@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Thanks for explaining the word "many" to me. It means a lot.
