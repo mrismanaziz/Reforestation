@@ -1,1 +1,1 @@
-## I used to think I was indecisive, but now I'm not sure.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
