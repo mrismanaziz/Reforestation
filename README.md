@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Where do bees go to the bathroom?  The BP station.
