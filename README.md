@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
