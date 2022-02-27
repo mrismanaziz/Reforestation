@@ -1,1 +1,1 @@
-## I saw a documentary on TV last night about how they put ships together.  It was rivetting.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
