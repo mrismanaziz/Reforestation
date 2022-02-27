@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
