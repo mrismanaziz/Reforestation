@@ -1,1 +1,1 @@
-## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
