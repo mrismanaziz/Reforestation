@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
