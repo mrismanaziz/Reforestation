@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Why are skeletons so calm? Because nothing gets under their skin.
