@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## A termite walks into a bar and asks “Is the bar tender here?”
