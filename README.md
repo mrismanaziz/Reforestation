@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## How do robots eat guacamole? With computer chips.
