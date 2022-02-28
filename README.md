@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
