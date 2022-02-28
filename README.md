@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## There’s a new type of broom out, it’s sweeping the nation.
