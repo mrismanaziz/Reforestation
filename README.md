@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
