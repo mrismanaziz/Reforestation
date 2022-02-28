@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## Did you know that ghosts call their true love their ghoul-friend?
