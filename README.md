@@ -1,1 +1,2 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
