@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
