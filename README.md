@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## What is a vampire's favorite fruit? A blood orange.
