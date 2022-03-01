@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## How do you make Lady Gaga cry? Poker face. 
