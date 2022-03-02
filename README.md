@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
