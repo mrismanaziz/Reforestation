@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
