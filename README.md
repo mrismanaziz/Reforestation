@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
