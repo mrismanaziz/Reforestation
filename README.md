@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## I thought about going on an all-almond diet. But that's just nuts.
