@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
