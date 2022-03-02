@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## I used to work for a soft drink can crusher. It was soda pressing.
