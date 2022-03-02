@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## I'd like to start a diet, but I've got too much on my plate right now.
