@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## Whoever invented the knock-knock joke should get a no bell prize.
