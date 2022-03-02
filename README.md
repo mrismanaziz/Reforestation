@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## I went to the doctor today and he told me I had type A blood but it was a type O.
