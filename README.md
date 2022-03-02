@@ -1,1 +1,2 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+## "Pop," goes the weasel.
