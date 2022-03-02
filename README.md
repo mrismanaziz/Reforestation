@@ -1,1 +1,1 @@
-## I used to work for an origami company but they folded.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
