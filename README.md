@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## Slept like a log last night … woke up in the fireplace.
