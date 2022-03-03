@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
