@@ -1,1 +1,3 @@
-## What is a centipedes's favorite Beatle song?  I want to hold your hand, hand, hand, hand...
+## Doctor: Do you want to hear the good news or the bad news?
+## Patient: Good news please.
+## Doctor: we're naming a disease after you.
