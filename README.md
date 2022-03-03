@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
