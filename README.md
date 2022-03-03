@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
