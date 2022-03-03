@@ -1,1 +1,1 @@
-## What do you get when you cross a bee and a sheep? A bah-humbug.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
