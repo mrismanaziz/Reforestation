@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
