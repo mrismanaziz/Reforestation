@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
