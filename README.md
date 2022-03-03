@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
