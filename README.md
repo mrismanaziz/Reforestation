@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
