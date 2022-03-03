@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
