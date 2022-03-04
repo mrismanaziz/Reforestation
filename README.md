@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
