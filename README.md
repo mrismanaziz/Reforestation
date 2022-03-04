@@ -1,1 +1,1 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## I was in an 80's band called the prevention. We were better than the cure.
