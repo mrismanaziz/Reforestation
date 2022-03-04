@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
