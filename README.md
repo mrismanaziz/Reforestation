@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## Why is no one friends with Dracula? Because he's a pain in the neck.
