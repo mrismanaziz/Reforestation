@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## What did the calculator say to the student? You can count on me.
