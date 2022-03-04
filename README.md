@@ -1,1 +1,1 @@
-## What do you call a fake noodle? An impasta.
+## The rotation of earth really makes my day.
