@@ -1,1 +1,2 @@
-## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
