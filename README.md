@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
