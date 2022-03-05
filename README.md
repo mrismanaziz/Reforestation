@@ -1,1 +1,1 @@
-## Every night at 11:11, I make a wish that someone will come fix my broken clock.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
