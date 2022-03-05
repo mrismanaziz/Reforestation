@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## The shovel was a ground-breaking invention.
