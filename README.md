@@ -1,1 +1,1 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## Did you know that ghosts call their true love their ghoul-friend?
