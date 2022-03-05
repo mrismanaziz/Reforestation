@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## I asked a frenchman if he played video games. He said "Wii"
