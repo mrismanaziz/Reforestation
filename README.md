@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## "I'll call you later." Don't call me later, call me Dad.
