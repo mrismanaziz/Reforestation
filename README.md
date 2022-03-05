@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## What did the ocean say to the beach? Thanks for all the sediment.
