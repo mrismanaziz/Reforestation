@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
