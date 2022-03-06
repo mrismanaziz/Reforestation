@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
