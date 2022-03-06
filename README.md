@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
