@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## What do you get when you cross a snowman with a vampire? Frostbite.
