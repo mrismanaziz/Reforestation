@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## Why do cows wear bells? Because their horns don't work.
