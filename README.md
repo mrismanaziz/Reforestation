@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Have you heard about corduroy pillows?  They're making headlines!
