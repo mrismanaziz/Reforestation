@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## How do hens stay fit? They always egg-cercise!
