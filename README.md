@@ -1,5 +1,1 @@
-## Me: If humans lose the ability to hear high frequency volumes as they get older, can my 4 week old son hear a dog whistle?
-## 
-## Doctor: No, humans can never hear that high of a frequency no matter what age they are.
-## 
-## Me: Trick question... dogs can't whistle.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
