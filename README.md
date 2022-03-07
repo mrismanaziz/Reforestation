@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## What did one snowman say to the other snow man? Do you smell carrot?
