@@ -1,1 +1,1 @@
-## My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
