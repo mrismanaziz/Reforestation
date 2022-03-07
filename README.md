@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
