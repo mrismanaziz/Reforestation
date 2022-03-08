@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Where do sheep go to get their hair cut? The baa-baa shop.
