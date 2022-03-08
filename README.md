@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## I just got fired from a florist, apparently I took too many leaves.
