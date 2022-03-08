@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
