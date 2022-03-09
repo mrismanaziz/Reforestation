@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## At the boxing match, the dad got into the popcorn line and the line for hot dogs, but he wanted to stay out of the punchline.
