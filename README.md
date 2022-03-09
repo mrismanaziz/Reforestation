@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## How do locomotives know where they're going? Lots of training
