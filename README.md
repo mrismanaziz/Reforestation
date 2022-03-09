@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## “My Dog has no nose.” “How does he smell?” “Awful”
