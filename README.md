@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
