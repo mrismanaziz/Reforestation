@@ -1,1 +1,1 @@
-## Just read a few facts about frogs. They were ribbiting.
+## What do you call corn that joins the army? Kernel.
