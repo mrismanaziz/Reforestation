@@ -1,1 +1,2 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
