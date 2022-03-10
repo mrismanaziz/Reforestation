@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## What’s E.T. short for? He’s only got little legs.
