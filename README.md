@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## A magician was driving down the street and then he turned into a driveway.
