@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## If two vegans are having an argument, is it still considered beef?
