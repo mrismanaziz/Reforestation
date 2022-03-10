@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
