@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
