@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## I’ll tell you something about German sausages, they’re the wurst
