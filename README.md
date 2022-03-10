@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## What do you call a boomerang that won't come back? A stick.
