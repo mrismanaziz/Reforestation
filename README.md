@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
