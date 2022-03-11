@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
