@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
