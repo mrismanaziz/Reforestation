@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
