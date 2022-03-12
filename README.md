@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## Want to hear my pizza joke? Never mind, it's too cheesy.
