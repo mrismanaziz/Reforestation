@@ -1,1 +1,1 @@
-## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
