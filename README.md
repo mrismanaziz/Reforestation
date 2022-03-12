@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
