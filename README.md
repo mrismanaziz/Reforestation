@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## It takes guts to be an organ donor.
