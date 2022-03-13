@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## Why can't a bicycle stand on its own? It's two-tired.
