@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## Where do sheep go to get their hair cut? The baa-baa shop.
