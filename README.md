@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
