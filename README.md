@@ -1,1 +1,1 @@
-## What did the Red light say to the Green light? Don't look at me I'm changing!
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
