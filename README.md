@@ -1,1 +1,1 @@
-## What do you call an old snowman? Water.
+## Why do cows wear bells? Because their horns don't work.
