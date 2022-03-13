@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Why do pirates not know the alphabet? They always get stuck at "C".
