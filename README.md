@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
