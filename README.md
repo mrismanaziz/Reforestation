@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
