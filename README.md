@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## When do doctors get angry? When they run out of patients.
