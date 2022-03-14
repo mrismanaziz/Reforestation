@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
