@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
