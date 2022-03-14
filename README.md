@@ -1,1 +1,1 @@
-## What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
