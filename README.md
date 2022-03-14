@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## Why did the half blind man fall in the well? Because he couldn't see that well!
