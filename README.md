@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## Did you hear about the runner who was criticized? He just took it in stride
