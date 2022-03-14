@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Don't trust atoms. They make up everything.
