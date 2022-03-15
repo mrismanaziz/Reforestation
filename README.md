@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
