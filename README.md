@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
