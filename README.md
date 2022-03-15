@@ -1,1 +1,3 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
