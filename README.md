@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
