@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## What is a centipedes's favorite Beatle song?  I want to hold your hand, hand, hand, hand...
