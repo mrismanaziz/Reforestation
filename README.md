@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
