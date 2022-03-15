@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## What kind of award did the dentist receive? A little plaque.
