@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
