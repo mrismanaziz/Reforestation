@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
