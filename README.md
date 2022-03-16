@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
