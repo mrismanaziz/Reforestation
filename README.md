@@ -1,1 +1,1 @@
-## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
