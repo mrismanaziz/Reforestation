@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## What do you call a boomerang that won't come back? A stick.
