@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
