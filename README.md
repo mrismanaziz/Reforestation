@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
