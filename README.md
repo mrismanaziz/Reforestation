@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## How does the moon cut his hair? Eclipse it.
