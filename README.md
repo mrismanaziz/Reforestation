@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## What kind of music do planets listen to? Nep-tunes.
