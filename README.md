@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## Why was the robot angry? Because someone kept pressing his buttons!
