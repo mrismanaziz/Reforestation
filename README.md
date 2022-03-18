@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
