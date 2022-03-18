@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## I'm glad I know sign language, it's pretty handy.
