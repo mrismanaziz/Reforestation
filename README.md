@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## I burned 2000 calories today, I left my food in the oven for too long.
