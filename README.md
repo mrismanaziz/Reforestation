@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
