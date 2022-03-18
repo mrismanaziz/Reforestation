@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## How does a scientist freshen their breath? With experi-mints!
