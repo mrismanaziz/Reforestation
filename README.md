@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
