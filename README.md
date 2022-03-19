@@ -1,1 +1,1 @@
-## The invention of the wheel was what got things rolling
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
