@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## Why do crabs never give to charity? Because they’re shellfish.
