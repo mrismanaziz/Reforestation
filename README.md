@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## What do vegetarian zombies eat? Grrrrrainnnnnssss.
