@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## What is a vampire's favorite fruit? A blood orange.
