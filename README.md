@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## How does Darth Vader like his toast? On the dark side.
