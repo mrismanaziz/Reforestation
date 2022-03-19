@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## What did the 0 say to the 8? Nice belt.
