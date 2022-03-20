@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## How do you find Will Smith in the snow?  Look for fresh prints.
