@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
