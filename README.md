@@ -1,1 +1,3 @@
-## Two peanuts were walking down the street. One was a salted.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
