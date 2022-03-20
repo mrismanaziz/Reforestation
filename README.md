@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## I used to be a banker, but I lost interest.
