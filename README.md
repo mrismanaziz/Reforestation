@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## This furniture store keeps emailing me, all I wanted was one night stand!
