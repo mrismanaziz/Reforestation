@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## I'm glad I know sign language, it's pretty handy.
