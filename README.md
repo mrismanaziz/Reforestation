@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
