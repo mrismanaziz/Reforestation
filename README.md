@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## I used to work in a shoe recycling shop. It was sole destroying.
