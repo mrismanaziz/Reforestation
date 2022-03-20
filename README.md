@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## I'll tell you what often gets over looked... garden fences.
