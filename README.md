@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## Why can't eggs have love? They will break up too soon.
