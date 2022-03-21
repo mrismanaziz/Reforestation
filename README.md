@@ -1,1 +1,1 @@
-## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
