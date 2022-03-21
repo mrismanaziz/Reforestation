@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
