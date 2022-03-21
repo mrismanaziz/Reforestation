@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
