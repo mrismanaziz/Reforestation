@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Want to hear my pizza joke? Never mind, it's too cheesy.
