@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
