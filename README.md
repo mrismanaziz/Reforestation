@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
