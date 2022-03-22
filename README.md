@@ -1,1 +1,1 @@
-## What do you call a fake noodle? An impasta.
+## What is a vampire's favorite fruit? A blood orange.
