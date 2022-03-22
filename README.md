@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
