@@ -1,1 +1,7 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## Wife: Honey I’m pregnant.
+## 
+## Me: Well…. what do we do now?
+## 
+## Wife: Well, I guess we should go to a baby doctor.
+## 
+## Me: Hm.. I think I’d be a lot more comfortable going to an adult doctor.
