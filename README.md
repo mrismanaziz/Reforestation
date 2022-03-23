@@ -1,1 +1,3 @@
-## How much does a hipster weigh? An instagram.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
