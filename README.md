@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
