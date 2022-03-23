@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## Why did the tree go to the dentist? It needed a root canal.
