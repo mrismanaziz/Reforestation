@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
