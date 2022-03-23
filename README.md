@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
