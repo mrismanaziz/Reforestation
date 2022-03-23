@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## I just got fired from a florist, apparently I took too many leaves.
