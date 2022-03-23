@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Have you heard about corduroy pillows?  They're making headlines!
