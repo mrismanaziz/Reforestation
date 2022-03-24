@@ -1,1 +1,1 @@
-## Can I watch the TV? Dad: Yes, but don’t turn it on.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
