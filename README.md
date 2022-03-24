@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
