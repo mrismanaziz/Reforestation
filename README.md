@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
