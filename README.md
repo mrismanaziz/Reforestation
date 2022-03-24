@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
