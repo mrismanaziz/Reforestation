@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
