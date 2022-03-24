@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
