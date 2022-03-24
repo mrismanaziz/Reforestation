@@ -1,1 +1,1 @@
-## My cat was just sick on the carpet, I don’t think it’s feline well.
+## I wouldn't buy anything with velcro. It's a total rip-off.
