@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## Why did the kid cross the playground? To get to the other slide.
