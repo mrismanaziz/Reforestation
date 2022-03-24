@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## I thought about going on an all-almond diet. But that's just nuts.
