@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## I asked a frenchman if he played video games. He said "Wii"
