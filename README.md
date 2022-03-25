@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## What did one snowman say to the other snow man? Do you smell carrot?
