@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## I made a belt out of watches once... It was a waist of time.
