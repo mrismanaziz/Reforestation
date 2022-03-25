@@ -1,1 +1,1 @@
-## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
