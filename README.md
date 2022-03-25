@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
