@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
