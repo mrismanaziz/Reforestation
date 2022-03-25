@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## A termite walks into a bar and asks “Is the bar tender here?”
