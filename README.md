@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## There's not really any training for garbagemen. They just pick things up as they go.
