@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
