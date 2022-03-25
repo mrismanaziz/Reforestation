@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
