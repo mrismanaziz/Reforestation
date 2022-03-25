@@ -1,1 +1,2 @@
-## I ate a clock yesterday. It was so time consuming.
+## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+## "Pop," goes the weasel.
