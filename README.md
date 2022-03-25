@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Want to hear a joke about construction? Nah, I'm still working on it.
