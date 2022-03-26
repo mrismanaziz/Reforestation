@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
