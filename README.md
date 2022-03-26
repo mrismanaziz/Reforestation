@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## Me and my mates are in a band called Duvet. We're a cover band.
