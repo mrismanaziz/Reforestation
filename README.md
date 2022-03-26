@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## How many South Americans does it take to change a lightbulb? A Brazilian
