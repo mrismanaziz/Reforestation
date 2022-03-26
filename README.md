@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## What do you call an alligator in a vest? An in-vest-igator!
