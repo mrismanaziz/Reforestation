@@ -1,1 +1,1 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
