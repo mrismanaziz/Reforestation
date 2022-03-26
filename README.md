@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## “My Dog has no nose.” “How does he smell?” “Awful”
