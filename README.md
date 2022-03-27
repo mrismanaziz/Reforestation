@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
