@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## What do bees do after they are married? They go on a honeymoon.
