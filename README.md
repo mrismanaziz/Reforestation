@@ -1,1 +1,2 @@
-## Why do cows wear bells? Because their horns don't work.
+## What is red and smells like blue paint?
+## Red paint!
