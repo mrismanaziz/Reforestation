@@ -1,1 +1,1 @@
-## Do I enjoy making courthouse puns? Guilty
+## Why do cows wear bells? Because their horns don't work.
