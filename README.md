@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## This furniture store keeps emailing me, all I wanted was one night stand!
