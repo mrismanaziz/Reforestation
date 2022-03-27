@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## How can you tell a vampire has a cold? They start coffin.
