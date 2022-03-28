@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
