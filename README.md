@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## Mountains aren't just funny, they are hill areas
