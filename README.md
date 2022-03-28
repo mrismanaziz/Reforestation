@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
