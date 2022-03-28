@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
