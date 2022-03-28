@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## Where did Captain Hook get his hook? From a second hand store.
