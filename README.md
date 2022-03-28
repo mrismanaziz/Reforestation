@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## I considered building the patio by myself. But I didn't have the stones.
