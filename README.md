@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## What does a female snake use for support? A co-Bra!
