@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## Two guys walked into a bar, the third one ducked.
