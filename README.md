@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## What do you call a duck that gets all A's? A wise quacker.
