@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## Conjunctivitis.com – now that’s a site for sore eyes.
