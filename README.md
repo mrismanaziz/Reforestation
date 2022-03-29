@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## How much does a hipster weigh? An instagram.
