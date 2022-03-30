@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
