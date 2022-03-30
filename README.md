@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
