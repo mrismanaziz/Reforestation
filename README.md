@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
