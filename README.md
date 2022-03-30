@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
