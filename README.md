@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
