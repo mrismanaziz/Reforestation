@@ -1,1 +1,1 @@
-## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
