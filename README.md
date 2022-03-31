@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
