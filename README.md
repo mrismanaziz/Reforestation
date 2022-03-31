@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
