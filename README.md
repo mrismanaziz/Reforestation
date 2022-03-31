@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
