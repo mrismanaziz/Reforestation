@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## Why did the half blind man fall in the well? Because he couldn't see that well!
