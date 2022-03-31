@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## What do you call a duck that gets all A's? A wise quacker.
