@@ -1,1 +1,2 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
