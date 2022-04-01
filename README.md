@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
