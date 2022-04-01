@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
