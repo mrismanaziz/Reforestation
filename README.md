@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
