@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## What do you call a bee that lives in America? A USB.
