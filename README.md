@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## What did the mountain climber name his son? Cliff.
