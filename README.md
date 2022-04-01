@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## What do you call a cow on a trampoline? A milk shake!
