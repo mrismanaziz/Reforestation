@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
