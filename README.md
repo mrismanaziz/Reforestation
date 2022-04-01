@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## How do you get a baby alien to sleep?  You rocket.
