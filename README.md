@@ -1,1 +1,1 @@
-## What do I look like? A JOKE MACHINE!?
+## Why do cows wear bells? Because their horns don't work.
