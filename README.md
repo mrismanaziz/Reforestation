@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
