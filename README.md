@@ -1,1 +1,1 @@
-## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
+## What do you call a cow with two legs? Lean beef.
