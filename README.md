@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
