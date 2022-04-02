@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## What's black and white and read all over? The newspaper.
