@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
