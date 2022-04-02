@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## An apple a day keeps the bullies away. If you throw it hard enough.
