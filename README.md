@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
