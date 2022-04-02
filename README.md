@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
