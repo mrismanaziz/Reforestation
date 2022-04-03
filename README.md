@@ -1,1 +1,1 @@
-## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
