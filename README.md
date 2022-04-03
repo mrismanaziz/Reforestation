@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
