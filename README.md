@@ -1,1 +1,1 @@
-## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
