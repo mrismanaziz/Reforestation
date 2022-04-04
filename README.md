@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## I used to be addicted to soap, but I'm clean now.
