@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Where did Captain Hook get his hook? From a second hand store.
