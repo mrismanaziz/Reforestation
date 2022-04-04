@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
