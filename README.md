@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
