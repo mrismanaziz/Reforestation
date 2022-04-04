@@ -1,1 +1,2 @@
-## What do you call a fly without wings? A walk.
+## What is red and smells like blue paint?
+## Red paint!
