@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
