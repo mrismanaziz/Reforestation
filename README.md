@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
