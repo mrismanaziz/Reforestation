@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
