@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Where does Napoleon keep his armies? In his sleevies.
