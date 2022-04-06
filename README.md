@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## A cannibal is someone who is fed up with people.
