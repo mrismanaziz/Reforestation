@@ -1,1 +1,1 @@
-## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
