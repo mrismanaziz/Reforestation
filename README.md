@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
