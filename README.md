@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
