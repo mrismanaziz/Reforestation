@@ -1,1 +1,1 @@
-## I thought my wife was joking when she said she'd leave me if I didn't stop signing "I'm A Believer"... Then I saw her face.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
