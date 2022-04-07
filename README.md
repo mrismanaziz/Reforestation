@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What's orange and sounds like a parrot? A Carrot.
