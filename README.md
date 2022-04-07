@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
