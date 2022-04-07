@@ -1,1 +1,2 @@
-## A steak pun is a rare medium well done.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
