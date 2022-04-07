@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
