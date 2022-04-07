@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
