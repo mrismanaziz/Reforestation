@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
