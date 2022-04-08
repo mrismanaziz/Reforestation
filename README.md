@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## I used to work in a shoe recycling shop. It was sole destroying.
