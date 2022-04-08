@@ -1,1 +1,2 @@
-## What kind of magic do cows believe in? MOODOO.
+## Where do cats write notes?
+## Scratch Paper!
