@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
