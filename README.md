@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
