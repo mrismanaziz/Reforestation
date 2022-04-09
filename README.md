@@ -1,1 +1,1 @@
-## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
