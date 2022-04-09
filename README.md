@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
