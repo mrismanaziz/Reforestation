@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## I used to be addicted to the hokey pokey, but I turned myself around.
