@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
