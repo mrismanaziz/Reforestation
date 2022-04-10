@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## What did the ocean say to the shore? Nothing, it just waved.
