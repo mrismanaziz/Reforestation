@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
