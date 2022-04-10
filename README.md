@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
