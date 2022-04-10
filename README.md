@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## What did the digital clock say to the grandfather clock? Look, no hands!
