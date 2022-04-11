@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## What do you call a bear with no teeth? A gummy bear!
