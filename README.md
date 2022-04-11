@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
