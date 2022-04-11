@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
