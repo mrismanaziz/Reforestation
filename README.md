@@ -1,1 +1,1 @@
-## *Reversing the car* "Ah, this takes me back"
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
