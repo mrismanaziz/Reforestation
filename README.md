@@ -1,1 +1,1 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
