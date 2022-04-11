@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## Have you heard about corduroy pillows?  They're making headlines!
