@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
