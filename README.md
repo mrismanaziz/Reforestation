@@ -1,1 +1,3 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
