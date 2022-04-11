@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
