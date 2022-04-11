@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## How come the stadium got hot after the game? Because all of the fans left.
