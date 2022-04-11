@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## I just got fired from a florist, apparently I took too many leaves.
