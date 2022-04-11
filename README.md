@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
