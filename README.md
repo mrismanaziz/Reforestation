@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Where do hamburgers go to dance? The meat-ball.
