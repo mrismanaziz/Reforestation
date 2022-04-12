@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
