@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## Where do young cows eat lunch? In the calf-ateria.
