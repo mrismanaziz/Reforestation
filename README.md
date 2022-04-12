@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
