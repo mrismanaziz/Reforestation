@@ -1,1 +1,1 @@
-## Did you hear about the bread factory burning down? They say the business is toast.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
