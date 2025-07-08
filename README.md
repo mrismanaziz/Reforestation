@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## Two guys walked into a bar, the third one ducked.
