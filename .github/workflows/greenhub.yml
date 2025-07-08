@@ -22,10 +22,10 @@ jobs:
           if ! git diff-index --quiet HEAD; then
             echo "✅ Perubahan terdeteksi, melakukan commit..."
             git add README.md
-            COMMIT_MESSAGE=$(curl -s http://whatthecommit.com/index.txt)
+            COMMIT_MESSAGE=$(curl -s https://corporatebs-generator.sameerkumar.website/ | jq -r '.phrase')
             if [ -z "$COMMIT_MESSAGE" ]; then
               echo "⚠️ Gagal mendapatkan pesan commit acak, menggunakan pesan default."
-              COMMIT_MESSAGE="auto-update README on $(TZ="Asia/Jakarta" date +"%Y-%m-%d %H:%M:%S %Z")"
+              COMMIT_MESSAGE="auto-update README on $(TZ="Asia/Jakarta" date +"%H:%M:%S")"
             fi
             echo "Melakukan commit dengan pesan: $COMMIT_MESSAGE"
             git commit -s -m "$COMMIT_MESSAGE"
