@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
