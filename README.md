@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
