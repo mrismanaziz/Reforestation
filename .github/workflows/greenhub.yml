@@ -14,7 +14,6 @@ jobs:
 
       - name: Generate content, commit, and push
         run: |
-          # Konfigurasi git dengan nama dan email Anda
           git config --local user.email "mrismanaziz@gmail.com"
           git config --local user.name "mrismanaziz"
           
@@ -24,6 +23,11 @@ jobs:
             echo "✅ Perubahan terdeteksi, melakukan commit..."
             git add README.md
             COMMIT_MESSAGE=$(curl -s http://whatthecommit.com/index.txt)
+            if [ -z "$COMMIT_MESSAGE" ]; then
+              echo "⚠️ Gagal mendapatkan pesan commit acak, menggunakan pesan default."
+              COMMIT_MESSAGE="auto-update README on $(TZ="Asia/Jakarta" date +"%Y-%m-%d %H:%M:%S %Z")"
+            fi
+            echo "Melakukan commit dengan pesan: $COMMIT_MESSAGE"
             git commit -s -m "$COMMIT_MESSAGE"
             git push --force
             echo "🚀 Perubahan berhasil di-push ke repositori."
