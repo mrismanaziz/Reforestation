@@ -1,1 +1,2 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Why did the cookie cry?
+Because his mother was a wafer so long
