@@ -2,36 +2,33 @@ name: Commit cheat
 
 on:
   workflow_dispatch:
-      
   schedule:
-  - cron: "45 * * * *"
+    - cron: "45 * * * *"
 
 jobs:
   auto_commit:
     runs-on: ubuntu-latest
     steps:
-      - uses: actions/checkout@v2      
-        with:
-         persist-credentials: false
-         fetch-depth: 0
+      - name: Checkout repository
+        uses: actions/checkout@v4
 
-      - name: Modify README.md
+      - name: Generate content, commit, and push
         run: |
-          cat > README.md
-          curl -H "Accept: text/plain" https://icanhazdadjoke.com > README.md
-          sed -i 's/^/## /gi' README.md
-          
-      - name: Commit changes
-        run: |
-          ${{ secrets.cr }}
+          # Konfigurasi git dengan nama dan email Anda
           git config --local user.email "mrismanaziz@gmail.com"
           git config --local user.name "mrismanaziz"
-          git add -A
-          git commit -s -am "$(curl -s http://whatthecommit.com/index.txt)"
           
-      - name: GitHub Push
-        uses: ad-m/github-push-action@v0.5.0
-        with:
-          force: true
-          directory: "."
-          github_token: ${{ secrets.GITHUB_TOKEN }}
+          echo "## $(curl -H "Accept: text/plain" https://icanhazdadjoke.com)" > README.md
+          
+          if ! git diff-index --quiet HEAD; then
+            echo "✅ Perubahan terdeteksi, melakukan commit..."
+            git add README.md
+            COMMIT_MESSAGE=$(curl -s http://whatthecommit.com/index.txt)
+            git commit -s -m "$COMMIT_MESSAGE"
+            git push --force
+            echo "🚀 Perubahan berhasil di-push ke repositori."
+          else
+            echo "✅ Tidak ada perubahan pada file, commit dilewati."
+          fi
+        env:
+          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
