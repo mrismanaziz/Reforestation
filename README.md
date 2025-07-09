@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
