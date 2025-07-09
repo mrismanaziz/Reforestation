@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
