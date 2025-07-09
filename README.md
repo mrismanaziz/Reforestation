@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
