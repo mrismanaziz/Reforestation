@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## Why did the man put his money in the freezer? He wanted cold hard cash!
