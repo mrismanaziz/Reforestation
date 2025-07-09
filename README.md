@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## Dad, can you put my shoes on? I don't think they'll fit me.
