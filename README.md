@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## New atoms frequently lose electrons when they fail to keep an ion them.
