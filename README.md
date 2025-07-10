@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
