@@ -1,1 +1,1 @@
-## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
+## When do doctors get angry? When they run out of patients.
