@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
