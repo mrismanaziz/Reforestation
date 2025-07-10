@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## What creature is smarter than a talking parrot? A spelling bee.
