@@ -1,1 +1,1 @@
-## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
