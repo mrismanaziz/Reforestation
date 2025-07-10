@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## If at first you don't succeed, sky diving is not for you!
