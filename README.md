@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## What is a witch's favorite subject in school? Spelling!
