@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## An apple a day keeps the bullies away. If you throw it hard enough.
