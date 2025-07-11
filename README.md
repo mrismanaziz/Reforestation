@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## Why do cows not have toes? They lactose!
