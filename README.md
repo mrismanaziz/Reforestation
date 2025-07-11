@@ -1,1 +1,2 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## Cosmetic surgery used to be such a taboo subject.
+Now you can talk about Botox and nobody raises an eyebrow.
