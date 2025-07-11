@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
