@@ -1,1 +1,1 @@
-## What type of music do balloons hate? Pop music!
+## How come the stadium got hot after the game? Because all of the fans left.
