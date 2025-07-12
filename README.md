@@ -1,1 +1,1 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
