@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Why did the house go to the doctor? It was having window panes.
