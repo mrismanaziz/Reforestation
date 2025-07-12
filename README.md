@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## How do you get a baby alien to sleep?  You rocket.
