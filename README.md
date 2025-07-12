@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
