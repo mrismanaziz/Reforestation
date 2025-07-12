@@ -1,1 +1,1 @@
-## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+## Did you hear about the runner who was criticized? He just took it in stride
