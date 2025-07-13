@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
