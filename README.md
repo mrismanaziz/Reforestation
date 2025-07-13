@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-
-At the bottom! 
+## My son is studying to be a surgeon, I just hope he makes the cut.
