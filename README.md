@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## Why did the clown have neck pain? - Because he slept funny
