@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
