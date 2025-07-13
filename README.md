@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## I'm glad I know sign language, it's pretty handy.
