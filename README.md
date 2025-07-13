@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
