@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## Why don't sharks eat clowns?  Because they taste funny.
