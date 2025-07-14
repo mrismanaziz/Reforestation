@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
