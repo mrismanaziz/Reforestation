@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
