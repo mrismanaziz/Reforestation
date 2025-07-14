@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
