@@ -1,1 +1,1 @@
-## Did you know that protons have mass? I didn't even know they were catholic.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
