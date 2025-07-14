@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-An irrelephant.
+## What do you call an eagle who can play the piano? Talonted!
