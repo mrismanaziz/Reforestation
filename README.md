@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
