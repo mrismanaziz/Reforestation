@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
