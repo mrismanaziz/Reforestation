@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
