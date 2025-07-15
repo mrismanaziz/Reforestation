@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## You know that cemetery up the road? People are dying to get in there.
