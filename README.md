@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
