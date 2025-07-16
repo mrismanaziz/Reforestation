@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
