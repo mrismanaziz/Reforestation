@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Waking up this morning was an eye-opening experience.
