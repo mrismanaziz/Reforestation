@@ -1,1 +1,1 @@
-## How many apples grow on a tree? All of them!
+## How many South Americans does it take to change a lightbulb? A Brazilian
