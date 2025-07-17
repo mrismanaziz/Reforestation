@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## I gave all my dead batteries away today, free of charge.
