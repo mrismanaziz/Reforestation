@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
