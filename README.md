@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## How can you tell a vampire has a cold? They start coffin.
