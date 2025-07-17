@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Mountains aren't just funny, they are hill areas
