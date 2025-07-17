@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
