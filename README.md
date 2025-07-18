@@ -1,1 +1,1 @@
-## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
+## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
