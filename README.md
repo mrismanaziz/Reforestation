@@ -1,1 +1,3 @@
-## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
+## Never Trust Someone With Graph Paper...
+
+They're always plotting something.
