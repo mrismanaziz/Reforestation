@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Did you know that ghosts call their true love their ghoul-friend?
