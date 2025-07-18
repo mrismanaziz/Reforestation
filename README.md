@@ -1,1 +1,1 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
