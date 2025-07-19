@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## What was a more important invention than the first telephone? The second one.
