@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## What did one plate say to the other plate? Dinner is on me!
