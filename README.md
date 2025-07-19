@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
