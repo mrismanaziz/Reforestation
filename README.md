@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
