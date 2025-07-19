@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
