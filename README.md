@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
