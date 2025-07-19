@@ -1,1 +1,1 @@
-## How do you teach a kid to climb stairs? There is a step by step guide.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
