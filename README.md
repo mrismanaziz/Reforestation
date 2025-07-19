@@ -1,1 +1,3 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## What is the difference between ignorance and apathy?
+
+I don't know and I don't care.
