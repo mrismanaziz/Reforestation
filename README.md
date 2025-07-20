@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
