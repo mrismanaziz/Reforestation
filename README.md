@@ -1,1 +1,1 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
