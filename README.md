@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
