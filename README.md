@@ -1,1 +1,2 @@
-## Why do cows not have toes? They lactose!
+## Q: What did the spaghetti say to the other spaghetti?
+A: Pasta la vista, baby!
