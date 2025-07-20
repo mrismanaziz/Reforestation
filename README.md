@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## What did one snowman say to the other snow man? Do you smell carrot?
