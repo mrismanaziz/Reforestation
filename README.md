@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
