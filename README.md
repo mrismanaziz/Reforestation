@@ -1,1 +1,1 @@
-## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
