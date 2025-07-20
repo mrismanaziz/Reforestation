@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
