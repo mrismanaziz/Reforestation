@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
