@@ -1,1 +1,1 @@
-## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+## New atoms frequently lose electrons when they fail to keep an ion them.
