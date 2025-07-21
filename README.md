@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## Why did the sentence fail the driving test? It never came to a full stop.
