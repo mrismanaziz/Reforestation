@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
