@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
