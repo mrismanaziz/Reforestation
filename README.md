@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## What do you call an elephant that doesn’t matter? An irrelephant.
