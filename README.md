@@ -1,2 +1,1 @@
-## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
-"Pop," goes the weasel.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
