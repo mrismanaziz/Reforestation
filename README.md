@@ -1,1 +1,2 @@
-## I've just written a song about a tortilla. Well, it is more of a rap really.
+## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+"Pop," goes the weasel.
