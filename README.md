@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## Why was the picture sent to prison? It was framed.
