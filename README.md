@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
