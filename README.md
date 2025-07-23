@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## Writing with a broken pencil is pointless.
