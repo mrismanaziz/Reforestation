@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## What is a tornado's favorite game to play? Twister!
