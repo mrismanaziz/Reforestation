@@ -1,1 +1,1 @@
-## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
