@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
