@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
