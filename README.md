@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## I used to work for a soft drink can crusher. It was soda pressing.
