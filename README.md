@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
