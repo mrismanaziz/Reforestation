@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## My sea sickness comes in waves.
