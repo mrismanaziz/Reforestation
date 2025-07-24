@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## The rotation of earth really makes my day.
