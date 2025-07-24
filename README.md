@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## What do you call a bear with no teeth? A gummy bear!
