@@ -1,1 +1,1 @@
-## I used to work for a soft drink can crusher. It was soda pressing.
+## How come a man driving a train got struck by lightning? He was a good conductor.
