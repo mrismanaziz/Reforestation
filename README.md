@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## A termite walks into a bar and asks “Is the bar tender here?”
