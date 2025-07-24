@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-You can hang around. I'll just go on ahead.
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
