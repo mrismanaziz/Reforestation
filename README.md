@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
