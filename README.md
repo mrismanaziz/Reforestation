@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
