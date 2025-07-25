@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## Why do fish live in salt water? Because pepper makes them sneeze!
