@@ -1,1 +1,1 @@
-## Pie is $2.50 in Jamaica and $3.00 in The Bahamas. These are the pie-rates of the Caribbean.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
