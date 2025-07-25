@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
