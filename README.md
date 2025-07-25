@@ -1,1 +1,2 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## Why don't you find hippopotamuses hiding in trees?
+They're really good at it.
