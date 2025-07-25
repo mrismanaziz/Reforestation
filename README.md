@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
