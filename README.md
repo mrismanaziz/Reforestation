@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## I just broke my guitar. It's okay, I won't fret
