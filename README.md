@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## I've just written a song about a tortilla. Well, it is more of a rap really.
