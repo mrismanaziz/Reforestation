@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
