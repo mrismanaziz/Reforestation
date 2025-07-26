@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
