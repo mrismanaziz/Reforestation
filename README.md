@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-They're really good at it.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
