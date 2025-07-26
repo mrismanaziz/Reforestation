@@ -1,1 +1,1 @@
-## It's only a murder of crows if there's probable caws.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
