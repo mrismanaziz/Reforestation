@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
