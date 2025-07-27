@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## What is a witch's favorite subject in school? Spelling!
