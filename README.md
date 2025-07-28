@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
