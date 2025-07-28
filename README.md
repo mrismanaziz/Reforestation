@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## I went to the zoo yesterday and saw a baguette in a cage. It was bread in captivity.
