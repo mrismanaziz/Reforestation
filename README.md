@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## How was the snow globe feeling after the storm? A little shaken.
