@@ -1,1 +1,3 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## Never Trust Someone With Graph Paper...
+
+They're always plotting something.
