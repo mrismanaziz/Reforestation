@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
