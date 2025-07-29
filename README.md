@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## How does a scientist freshen their breath? With experi-mints!
