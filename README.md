@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## What do you call a boomerang that won't come back? A stick.
