@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## What's blue and not very heavy?  Light blue.
