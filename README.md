@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
