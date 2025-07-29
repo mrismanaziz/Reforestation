@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
