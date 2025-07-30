@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
