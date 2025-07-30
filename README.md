@@ -1,1 +1,1 @@
-## what happens when you cross a sheep with a kangaroo ? A woolly jumper!
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
