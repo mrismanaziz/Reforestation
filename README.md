@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## Where do rabbits go after they get married? On a bunny-moon.
