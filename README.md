@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## Why was it called the dark ages? Because of all the knights. 
