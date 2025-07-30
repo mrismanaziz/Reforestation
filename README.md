@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
