@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
