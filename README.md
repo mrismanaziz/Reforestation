@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
