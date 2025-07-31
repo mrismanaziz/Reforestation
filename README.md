@@ -1,1 +1,1 @@
-## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
