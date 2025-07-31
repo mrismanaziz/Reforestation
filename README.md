@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
