@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## How many apples grow on a tree? All of them!
