@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
