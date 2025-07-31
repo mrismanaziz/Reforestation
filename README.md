@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## Why did the belt go to prison? He held up a pair of pants!
