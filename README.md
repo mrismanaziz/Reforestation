@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-
-They're always plotting something.
+## What do you call an eagle who can play the piano? Talonted!
