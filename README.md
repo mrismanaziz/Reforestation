@@ -1,1 +1,3 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## Never Trust Someone With Graph Paper...
+
+They're always plotting something.
