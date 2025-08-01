@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-Because his mother was a wafer so long
+## What do computers and air conditioners have in common? They both become useless when you open windows.
