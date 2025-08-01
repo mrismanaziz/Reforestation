@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
