@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
