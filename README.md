@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
