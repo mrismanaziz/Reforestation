@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## Why was the robot angry? Because someone kept pressing his buttons!
