@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## If two vegans are having an argument, is it still considered beef?
