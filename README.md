@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
