@@ -1,1 +1,1 @@
-## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
