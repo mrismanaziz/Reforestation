@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
