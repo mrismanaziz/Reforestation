@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## Who is the coolest Doctor in the hospital? The hip Doctor!
