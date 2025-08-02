@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
