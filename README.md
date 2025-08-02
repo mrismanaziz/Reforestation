@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## what do you call a dog that can do magic tricks? a labracadabrador
