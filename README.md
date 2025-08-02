@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## What do you get when you cross a chicken with a skunk? A fowl smell!
