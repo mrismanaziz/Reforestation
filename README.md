@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
