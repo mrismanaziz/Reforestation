@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## “My Dog has no nose.” “How does he smell?” “Awful”
