@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
