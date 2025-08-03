@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
