@@ -1,1 +1,1 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
