@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
