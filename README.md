@@ -1,1 +1,1 @@
-## I can't take my dog to the pond anymore because the ducks keep attacking him. That's what I get for buying a pure bread dog.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
