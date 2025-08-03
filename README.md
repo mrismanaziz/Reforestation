@@ -1,1 +1,1 @@
-## Why does Han Solo like gum? It's chewy!
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
