@@ -1,1 +1,1 @@
-## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
