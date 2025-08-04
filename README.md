@@ -1,1 +1,1 @@
-## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
