@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
