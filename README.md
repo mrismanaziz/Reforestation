@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## I used to work in a shoe recycling shop. It was sole destroying.
