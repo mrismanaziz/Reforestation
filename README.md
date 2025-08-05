@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
