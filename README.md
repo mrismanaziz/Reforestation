@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
