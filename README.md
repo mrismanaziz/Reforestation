@@ -1,1 +1,2 @@
-## What did the mountain climber name his son? Cliff.
+## Hostess: Do you have a preference of where you sit?
+Dad: Down.
