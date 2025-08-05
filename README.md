@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## Why do choirs keep buckets handy? So they can carry their tune
