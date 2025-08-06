@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## How do you find Will Smith in the snow?  Look for fresh prints.
