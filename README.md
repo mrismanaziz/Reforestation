@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## Did you hear about the runner who was criticized? He just took it in stride
