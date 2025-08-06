@@ -1,1 +1,1 @@
-## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
