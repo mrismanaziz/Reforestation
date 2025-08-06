@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Why did the coffee file a police report? It got mugged.
