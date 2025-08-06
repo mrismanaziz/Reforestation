@@ -1,1 +1,2 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## "Dad, I'm cold."
+"Go stand in the corner, I hear it's 90 degrees."
