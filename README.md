@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## A cannibal is someone who is fed up with people.
