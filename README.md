@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## What do you call two guys hanging out by your window? Kurt & Rod.
