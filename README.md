@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
