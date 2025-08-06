@@ -1,1 +1,2 @@
-## What did the calculator say to the student? You can count on me.
+## Q: What did the spaghetti say to the other spaghetti?
+A: Pasta la vista, baby!
