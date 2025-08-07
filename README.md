@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
