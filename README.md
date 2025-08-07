@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
