@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## Why are skeletons so calm? Because nothing gets under their skin.
