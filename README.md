@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## Camping is intense.
