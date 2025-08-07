@@ -1,1 +1,1 @@
-## Pie is $2.50 in Jamaica and $3.00 in The Bahamas. These are the pie-rates of the Caribbean.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
