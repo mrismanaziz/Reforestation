@@ -1,1 +1,1 @@
-## What did the big flower say to the littler flower? Hi, bud!
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
