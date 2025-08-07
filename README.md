@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
