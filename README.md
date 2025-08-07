@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Why did the tree go to the dentist? It needed a root canal.
