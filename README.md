@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## Have you ever seen fruit preserves being made? It's jarring.
