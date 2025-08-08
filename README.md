@@ -1,1 +1,1 @@
-## *Reversing the car* "Ah, this takes me back"
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
