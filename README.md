@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## Why was the strawberry sad? Its parents were in a jam.
