@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## Why did the kid cross the playground? To get to the other slide.
