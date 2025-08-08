@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## R.I.P. boiled water. You will be mist.
