@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## I'd like to start a diet, but I've got too much on my plate right now.
