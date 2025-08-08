@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
