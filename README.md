@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Why did the feline fail the lie detector test? Because he be lion.
