@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## How do the trees get on the internet? They log on.
