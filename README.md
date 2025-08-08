@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## I just broke my guitar. It's okay, I won't fret
