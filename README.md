@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## I met this girl on a dating site and, I don't know, we just clicked.
