@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
