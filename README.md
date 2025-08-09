@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
