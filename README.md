@@ -1,2 +1,1 @@
-## Where do cats write notes?
-Scratch Paper!
+## I was going to learn how to juggle, but I didn't have the balls.
