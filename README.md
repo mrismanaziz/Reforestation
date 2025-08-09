@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
