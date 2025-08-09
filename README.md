@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## Our wedding was so beautiful, even the cake was in tiers.
