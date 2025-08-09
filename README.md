@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## I used to hate facial hair, but then it grew on me.
