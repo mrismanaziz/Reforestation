@@ -1,1 +1,1 @@
-## Camping is intense.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
