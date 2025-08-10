@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## My first time using an elevator was an uplifting experience. The second time let me down.
