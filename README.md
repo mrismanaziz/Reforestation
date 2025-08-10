@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
