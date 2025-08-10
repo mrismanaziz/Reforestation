@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
