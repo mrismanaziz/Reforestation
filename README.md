@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
