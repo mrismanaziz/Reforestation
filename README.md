@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Me and my mates are in a band called Duvet. We're a cover band.
