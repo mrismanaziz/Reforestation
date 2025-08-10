@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
