@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Waking up this morning was an eye-opening experience.
