@@ -1,1 +1,1 @@
-## I am so good at sleeping I can do it with my eyes closed!
+## Don't tell secrets in corn fields. Too many ears around.
