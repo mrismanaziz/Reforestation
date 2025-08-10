@@ -1,1 +1,1 @@
-## My first time using an elevator was an uplifting experience. The second time let me down.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
