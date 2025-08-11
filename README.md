@@ -1,2 +1,2 @@
-## "Dad, I'm cold."
-"Go stand in the corner, I hear it's 90 degrees."
+## Why don't you find hippopotamuses hiding in trees?
+They're really good at it.
