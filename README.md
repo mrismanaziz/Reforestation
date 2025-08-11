@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## I considered building the patio by myself. But I didn't have the stones.
