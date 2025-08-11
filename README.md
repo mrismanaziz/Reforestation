@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## What's orange and sounds like a parrot? A Carrot.
