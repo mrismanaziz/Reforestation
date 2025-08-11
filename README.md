@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## I’ll tell you something about German sausages, they’re the wurst
