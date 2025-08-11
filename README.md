@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
