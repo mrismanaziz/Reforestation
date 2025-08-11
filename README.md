@@ -1,1 +1,1 @@
-## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
