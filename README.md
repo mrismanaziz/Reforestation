@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## A cannibal is someone who is fed up with people.
