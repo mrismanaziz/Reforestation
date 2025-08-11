@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-They're really good at it.
+## What is the hardest part about sky diving? The ground.
