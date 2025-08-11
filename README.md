@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
