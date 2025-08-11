@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## What kind of pants do ghosts wear? Boo jeans.
