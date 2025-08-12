@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
