@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-An irrelephant.
+## There’s a new type of broom out, it’s sweeping the nation.
