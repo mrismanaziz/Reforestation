@@ -1,1 +1,1 @@
-## It's difficult to say what my wife does, she sells sea shells by the sea shore.
+## Why do birds fly south for the winter? Because it's too far to walk.
