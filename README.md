@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
