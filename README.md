@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
