@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
