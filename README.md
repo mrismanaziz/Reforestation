@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
