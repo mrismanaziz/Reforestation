@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
