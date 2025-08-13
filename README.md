@@ -1,1 +1,1 @@
-## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
