@@ -1,1 +1,2 @@
-## R.I.P. boiled water. You will be mist.
+## Why don't you find hippopotamuses hiding in trees?
+They're really good at it.
