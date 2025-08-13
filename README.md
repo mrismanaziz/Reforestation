@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## What creature is smarter than a talking parrot? A spelling bee.
