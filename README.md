@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## What did one nut say as he chased another nut?  I'm a cashew!
