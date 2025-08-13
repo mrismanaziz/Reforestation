@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## what do you call a dog that can do magic tricks? a labracadabrador
