@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
