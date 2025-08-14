@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## You can't trust a ladder. It will always let you down
