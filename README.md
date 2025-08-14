@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-
-I don't know and I don't care.
+## What did one snowman say to the other snow man? Do you smell carrot?
