@@ -1,1 +1,3 @@
-## A book just fell on my head. I only have my shelf to blame.
+## What is the difference between ignorance and apathy?
+
+I don't know and I don't care.
