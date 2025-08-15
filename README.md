@@ -1,1 +1,1 @@
-## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
