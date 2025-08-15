@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## Where did Captain Hook get his hook? From a second hand store.
