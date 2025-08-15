@@ -1,1 +1,1 @@
-## What did the big flower say to the littler flower? Hi, bud!
+## Why can't eggs have love? They will break up too soon.
