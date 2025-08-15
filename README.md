@@ -1,1 +1,1 @@
-## I once lost a banana at court but then I appealed. 
+## It doesn't matter how much you push the envelope. It will still be stationary.
