@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Why was it called the dark ages? Because of all the knights. 
