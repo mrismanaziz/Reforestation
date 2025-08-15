@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
