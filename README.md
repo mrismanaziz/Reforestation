@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## Why is no one friends with Dracula? Because he's a pain in the neck.
