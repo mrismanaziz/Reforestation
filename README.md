@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## What is a witch's favorite subject in school? Spelling!
