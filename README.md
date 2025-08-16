@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
