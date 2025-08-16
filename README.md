@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-BREATH!!
+## What did one nut say as he chased another nut?  I'm a cashew!
