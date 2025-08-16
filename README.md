@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
