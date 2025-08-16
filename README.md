@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
