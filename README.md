@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
