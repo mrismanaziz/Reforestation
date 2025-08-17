@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## What do you call your friend who stands in a hole? Phil.
