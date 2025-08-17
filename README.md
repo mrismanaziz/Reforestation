@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
