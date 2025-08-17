@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## Where does astronauts hangout after work? At the spacebar.
