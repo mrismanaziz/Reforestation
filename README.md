@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
