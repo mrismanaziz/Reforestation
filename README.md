@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
