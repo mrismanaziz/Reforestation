@@ -1,1 +1,1 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
