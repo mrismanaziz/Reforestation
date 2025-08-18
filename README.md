@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## Dad, can you put my shoes on? I don't think they'll fit me.
