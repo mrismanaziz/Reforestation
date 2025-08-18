@@ -1,1 +1,3 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## How many seconds are in a year?
+12.
+January 2nd, February 2nd, March 2nd, April 2nd.... etc
