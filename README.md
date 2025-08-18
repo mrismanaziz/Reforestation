@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
