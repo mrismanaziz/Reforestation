@@ -1,3 +1,1 @@
-## How many seconds are in a year?
-12.
-January 2nd, February 2nd, March 2nd, April 2nd.... etc
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
