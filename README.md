@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## I was in an 80's band called the prevention. We were better than the cure.
