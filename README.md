@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## Which side of the chicken has more feathers? The outside.
