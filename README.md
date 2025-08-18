@@ -1,1 +1,1 @@
-## "Dad, do you think it's going to snow this winter?" "I dont know, its all up in the air"
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
