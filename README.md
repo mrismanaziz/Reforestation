@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## What do you call an elephant that doesn’t matter? An irrelephant.
