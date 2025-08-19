@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Where do young cows eat lunch? In the calf-ateria.
