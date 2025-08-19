@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
