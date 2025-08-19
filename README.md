@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
