@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
