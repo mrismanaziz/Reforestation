@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Ever wondered why bees hum? It's because they don't know the words.
