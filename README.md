@@ -1,1 +1,1 @@
-## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
