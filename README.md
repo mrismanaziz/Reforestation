@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## Where did Captain Hook get his hook? From a second hand store.
