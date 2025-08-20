@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## I burned 2000 calories today, I left my food in the oven for too long.
