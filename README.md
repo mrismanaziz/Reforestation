@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## I'll tell you what often gets over looked... garden fences.
