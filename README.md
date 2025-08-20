@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## There's not really any training for garbagemen. They just pick things up as they go.
