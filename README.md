@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## Atheism is a non-prophet organisation.
