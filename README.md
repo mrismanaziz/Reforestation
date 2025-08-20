@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
