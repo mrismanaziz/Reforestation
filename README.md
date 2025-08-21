@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
