@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
