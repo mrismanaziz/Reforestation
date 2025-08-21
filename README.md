@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
