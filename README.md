@@ -1,1 +1,1 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
