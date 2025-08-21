@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
