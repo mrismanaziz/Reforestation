@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## Coffee has a tough time at my house, every morning it gets mugged.
