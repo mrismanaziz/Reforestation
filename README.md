@@ -1,1 +1,1 @@
-## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
