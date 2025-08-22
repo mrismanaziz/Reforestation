@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
