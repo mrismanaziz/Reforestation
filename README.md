@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
