@@ -1,1 +1,3 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## What's the worst part about being a cross-eyed teacher?
+
+They can't control their pupils.
