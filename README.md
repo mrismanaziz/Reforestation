@@ -1,1 +1,1 @@
-## What did the Red light say to the Green light? Don't look at me I'm changing!
+## To the person who stole my anti-depressant pills: I hope you're happy now.
