@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-
-They can't control their pupils.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
