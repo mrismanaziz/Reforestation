@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## What do computers and air conditioners have in common? They both become useless when you open windows.
