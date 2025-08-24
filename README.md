@@ -1,1 +1,1 @@
-## Where do owls go to buy their baby clothes? The owlet malls.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
