@@ -1,1 +1,1 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
