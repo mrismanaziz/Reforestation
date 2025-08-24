@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## How come the stadium got hot after the game? Because all of the fans left.
