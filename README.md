@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## A girl once asked me what my heart desired, apparently blood, oxygen and neural messages were all wrong answers
