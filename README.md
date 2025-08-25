@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## Did you know that ghosts call their true love their ghoul-friend?
