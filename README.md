@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
