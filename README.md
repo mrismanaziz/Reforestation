@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
