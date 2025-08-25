@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
