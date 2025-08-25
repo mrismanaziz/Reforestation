@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
