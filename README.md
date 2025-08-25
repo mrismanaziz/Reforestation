@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## I used to be a banker, but I lost interest.
