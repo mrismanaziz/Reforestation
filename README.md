@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
