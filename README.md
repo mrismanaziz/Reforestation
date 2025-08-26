@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
