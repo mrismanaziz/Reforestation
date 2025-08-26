@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## I used to work in a shoe recycling shop. It was sole destroying.
