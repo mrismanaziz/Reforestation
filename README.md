@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
