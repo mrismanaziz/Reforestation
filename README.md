@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
