@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## What do you call someone with no nose? Nobody knows.
