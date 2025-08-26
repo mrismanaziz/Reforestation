@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## An apple a day keeps the bullies away. If you throw it hard enough.
