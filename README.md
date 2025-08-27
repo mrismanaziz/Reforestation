@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
