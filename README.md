@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## I used to hate facial hair, but then it grew on me.
