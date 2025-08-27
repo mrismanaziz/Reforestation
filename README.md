@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## What do bees do after they are married? They go on a honeymoon.
