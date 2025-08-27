@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
