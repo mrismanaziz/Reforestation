@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
