@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Why did the tree go to the dentist? It needed a root canal.
