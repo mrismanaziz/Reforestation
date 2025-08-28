@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
