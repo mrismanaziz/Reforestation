@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## Shout out to my grandma, that's the only way she can hear.
