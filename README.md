@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## Where did Captain Hook get his hook? From a second hand store.
