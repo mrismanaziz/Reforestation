@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
