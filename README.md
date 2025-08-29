@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## There’s a new type of broom out, it’s sweeping the nation.
