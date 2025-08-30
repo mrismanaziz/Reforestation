@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
