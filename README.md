@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
