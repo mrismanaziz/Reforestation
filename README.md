@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
