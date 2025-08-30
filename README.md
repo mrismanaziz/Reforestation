@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
