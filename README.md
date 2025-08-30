@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
