@@ -1,1 +1,1 @@
-## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
+## What do bees do after they are married? They go on a honeymoon.
