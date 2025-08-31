@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
