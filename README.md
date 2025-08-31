@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## What did the digital clock say to the grandfather clock? Look, no hands!
