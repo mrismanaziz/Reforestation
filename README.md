@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
