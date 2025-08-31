@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-Sign Language
+## I asked a frenchman if he played video games. He said "Wii"
