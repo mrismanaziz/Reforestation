@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## I couldn't get a reservation at the library. They were completely booked.
