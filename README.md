@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
