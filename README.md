@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## Why are fish easy to weigh? Because they have their own scales.
