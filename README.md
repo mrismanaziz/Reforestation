@@ -1,1 +1,3 @@
-## What do you get when you cross a bee and a sheep? A bah-humbug.
+## How many seconds are in a year?
+12.
+January 2nd, February 2nd, March 2nd, April 2nd.... etc
