@@ -1,1 +1,1 @@
-## What did the Red light say to the Green light? Don't look at me I'm changing!
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
