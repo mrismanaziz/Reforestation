@@ -1,3 +1,1 @@
-## How many seconds are in a year?
-12.
-January 2nd, February 2nd, March 2nd, April 2nd.... etc
+## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
