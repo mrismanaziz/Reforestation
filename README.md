@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
