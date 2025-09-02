@@ -1,1 +1,2 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## What is red and smells like blue paint?
+Red paint!
