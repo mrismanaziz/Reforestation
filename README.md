@@ -1,1 +1,1 @@
-## Can February march? No, but April may.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
