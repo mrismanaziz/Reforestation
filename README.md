@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## I used to work for a soft drink can crusher. It was soda pressing.
