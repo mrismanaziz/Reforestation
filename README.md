@@ -1,1 +1,1 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
