@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
