@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## The first time I got a universal remote control I thought to myself, "This changes everything"
