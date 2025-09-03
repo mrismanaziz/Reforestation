@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## What did the mountain climber name his son? Cliff.
