@@ -1,1 +1,1 @@
-## What do you call a female snake. misssssssss 
+## What do you call corn that joins the army? Kernel.
