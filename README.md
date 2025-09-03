@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## If two vegans are having an argument, is it still considered beef?
