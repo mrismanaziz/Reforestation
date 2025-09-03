@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
