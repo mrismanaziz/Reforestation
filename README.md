@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
