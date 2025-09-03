@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
