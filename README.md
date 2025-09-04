@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
