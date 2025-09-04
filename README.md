@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
