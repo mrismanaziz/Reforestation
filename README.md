@@ -1,1 +1,2 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+
