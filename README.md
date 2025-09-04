@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
