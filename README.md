@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
