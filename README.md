@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## Why was Pavlov's beard so soft?  Because he conditioned it.
