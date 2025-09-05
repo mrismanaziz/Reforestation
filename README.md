@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
