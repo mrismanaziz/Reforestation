@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## How do you find Will Smith in the snow?  Look for fresh prints.
