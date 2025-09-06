@@ -1,1 +1,1 @@
-## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
