@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
