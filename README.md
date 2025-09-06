@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## What do you call a troublesome Canadian high schooler? A poutine.
