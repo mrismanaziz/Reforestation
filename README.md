@@ -1,1 +1,2 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## Cosmetic surgery used to be such a taboo subject.
+Now you can talk about Botox and nobody raises an eyebrow.
