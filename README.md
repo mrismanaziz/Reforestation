@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
