@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## My boss told me to have a good day... so I went home.
