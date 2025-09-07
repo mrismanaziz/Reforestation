@@ -1,1 +1,1 @@
-## Milk is also the fastest liquid on earth – its pasteurized before you even see it
+## Why did the coffee file a police report? It got mugged.
