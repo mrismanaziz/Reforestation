@@ -1,1 +1,1 @@
-## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
+## Did you know that ghosts call their true love their ghoul-friend?
