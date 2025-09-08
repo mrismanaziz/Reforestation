@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## Why do fish live in salt water? Because pepper makes them sneeze!
