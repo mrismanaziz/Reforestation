@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
