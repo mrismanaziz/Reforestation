@@ -1,1 +1,1 @@
-## What do you get when you cross a bee and a sheep? A bah-humbug.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
