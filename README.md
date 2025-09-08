@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
