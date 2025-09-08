@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## Shout out to my grandma, that's the only way she can hear.
