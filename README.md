@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## My wife said I was immature. So I told her to get out of my fort.
