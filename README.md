@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
