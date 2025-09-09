@@ -1,1 +1,1 @@
-## Did you hear about the bread factory burning down? They say the business is toast.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
