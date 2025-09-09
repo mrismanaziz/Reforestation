@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
