@@ -1,1 +1,1 @@
-## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
