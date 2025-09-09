@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
