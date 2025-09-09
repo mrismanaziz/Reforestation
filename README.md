@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
