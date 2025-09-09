@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
