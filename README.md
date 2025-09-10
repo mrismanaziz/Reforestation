@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## I’m only familiar with 25 letters in the English language. I don’t know why.
