@@ -1,1 +1,1 @@
-## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
