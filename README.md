@@ -1,1 +1,1 @@
-## ‘Put the cat out’ … ‘I didn’t realize it was on fire
+## Why did the knife dress up in a suit? Because it wanted to look sharp
