@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## Why do fish live in salt water? Because pepper makes them sneeze!
