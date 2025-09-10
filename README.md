@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
