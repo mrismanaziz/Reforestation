@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Why is the ocean always blue? Because the shore never waves back.
