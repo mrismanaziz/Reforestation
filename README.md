@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
