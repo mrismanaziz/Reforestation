@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## What do you call a cow with two legs? Lean beef.
