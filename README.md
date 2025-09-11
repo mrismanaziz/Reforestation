@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## I used to hate facial hair, but then it grew on me.
