@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Why do crabs never give to charity? Because they’re shellfish.
