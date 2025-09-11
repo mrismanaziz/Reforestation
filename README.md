@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
