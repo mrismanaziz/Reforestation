@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## What do you call a cow on a trampoline? A milk shake!
