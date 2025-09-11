@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## What do you get when you cross a snowman with a vampire? Frostbite.
