@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
