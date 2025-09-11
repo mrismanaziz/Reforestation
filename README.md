@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## How do you make Lady Gaga cry? Poker face. 
