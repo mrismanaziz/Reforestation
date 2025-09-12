@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
