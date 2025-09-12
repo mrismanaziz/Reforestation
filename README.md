@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
