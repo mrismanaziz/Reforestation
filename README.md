@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## Leather is great for sneaking around because it's made of hide.
