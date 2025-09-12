@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## Our wedding was so beautiful, even the cake was in tiers.
