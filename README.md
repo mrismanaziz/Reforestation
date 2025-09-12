@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
