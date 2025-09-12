@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
