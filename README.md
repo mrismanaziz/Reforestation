@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-Park your car, man.
+## Why didn’t the orange win the race? It ran out of juice.
