@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## Where do rabbits go after they get married? On a bunny-moon.
