@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## A magician was driving down the street and then he turned into a driveway.
