@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
