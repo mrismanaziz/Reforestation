@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
