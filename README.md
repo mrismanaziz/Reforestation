@@ -1,1 +1,1 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
