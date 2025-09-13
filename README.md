@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
