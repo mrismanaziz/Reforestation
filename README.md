@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
