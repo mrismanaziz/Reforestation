@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## A termite walks into a bar and asks “Is the bar tender here?”
