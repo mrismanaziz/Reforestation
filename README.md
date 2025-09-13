@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Have you heard about the owl sanctuary job opening? It’s all night shifts but they’re all a hoot over there.
