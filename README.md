@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## My son is studying to be a surgeon, I just hope he makes the cut.
