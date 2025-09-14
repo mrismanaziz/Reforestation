@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
