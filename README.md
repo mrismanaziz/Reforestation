@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## Did you hear about the Mexican train killer? He had loco motives
