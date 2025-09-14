@@ -1,1 +1,1 @@
-## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
