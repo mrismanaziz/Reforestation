@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
