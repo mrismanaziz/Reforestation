@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
