@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## What did the ocean say to the shore? Nothing, it just waved.
