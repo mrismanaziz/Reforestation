@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
