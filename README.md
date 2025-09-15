@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## I asked a frenchman if he played video games. He said "Wii"
