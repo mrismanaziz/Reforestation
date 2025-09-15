@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
