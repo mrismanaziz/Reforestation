@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## How do you find Will Smith in the snow?  Look for fresh prints.
