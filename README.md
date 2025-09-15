@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
