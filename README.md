@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
