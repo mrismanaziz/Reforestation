@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
