@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
