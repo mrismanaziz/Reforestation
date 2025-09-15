@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Without geometry life is pointless.
