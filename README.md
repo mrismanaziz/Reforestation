@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## How do you make Lady Gaga cry? Poker face. 
