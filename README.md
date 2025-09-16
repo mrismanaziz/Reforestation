@@ -1,1 +1,1 @@
-## Just read a few facts about frogs. They were ribbiting.
+## Why do bears have hairy coats? Fur protection.
