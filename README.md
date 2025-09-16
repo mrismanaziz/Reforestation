@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
