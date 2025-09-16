@@ -1,1 +1,1 @@
-## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
