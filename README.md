@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## What do you call a dad that has fallen through the ice? A Popsicle.
