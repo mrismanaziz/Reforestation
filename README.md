@@ -1,1 +1,1 @@
-## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
