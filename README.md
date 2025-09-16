@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
