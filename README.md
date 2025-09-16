@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
