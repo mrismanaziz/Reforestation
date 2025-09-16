@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
