@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
