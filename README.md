@@ -1,3 +1,1 @@
-## How many seconds are in a year?
-12.
-January 2nd, February 2nd, March 2nd, April 2nd.... etc
+## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
