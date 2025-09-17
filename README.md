@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Ever wondered why bees hum? It's because they don't know the words.
