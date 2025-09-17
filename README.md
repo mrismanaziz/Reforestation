@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
