@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## What did one plate say to the other plate? Dinner is on me!
