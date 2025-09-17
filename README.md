@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-An ion! 
+## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
