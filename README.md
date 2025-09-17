@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## Why do mathematicians hate the U.S.? Because it's indivisible.
