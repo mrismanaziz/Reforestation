@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## How many South Americans does it take to change a lightbulb? A Brazilian
