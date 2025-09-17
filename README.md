@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## Why can't a bicycle stand on its own? It's two-tired.
