@@ -1,1 +1,1 @@
-## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
