@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## What did the mountain climber name his son? Cliff.
