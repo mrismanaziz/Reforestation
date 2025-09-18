@@ -1,1 +1,1 @@
-## What do you call a fake noodle? An impasta.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
