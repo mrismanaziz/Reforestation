@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## What animal is always at a game of cricket? A bat.
