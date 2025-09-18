@@ -1,1 +1,1 @@
-## I am so good at sleeping I can do it with my eyes closed!
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
