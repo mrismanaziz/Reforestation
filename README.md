@@ -1,1 +1,1 @@
-## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
