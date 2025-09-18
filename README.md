@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Why did the clown have neck pain? - Because he slept funny
