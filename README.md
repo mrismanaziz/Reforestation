@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## An apple a day keeps the bullies away. If you throw it hard enough.
