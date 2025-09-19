@@ -1,1 +1,1 @@
-## The invention of the wheel was what got things rolling
+## Did you hear about the two thieves who stole a calendar? They each got six months.
