@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
