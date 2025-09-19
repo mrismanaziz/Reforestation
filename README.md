@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## How do you make holy water? You boil the hell out of it.
