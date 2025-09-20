@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## What do you call two guys hanging out by your window? Kurt & Rod.
