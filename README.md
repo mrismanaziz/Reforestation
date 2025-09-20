@@ -1,1 +1,2 @@
-## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
+## What's the difference between a seal and a sea lion?
+An ion! 
