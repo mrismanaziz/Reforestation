@@ -1,1 +1,1 @@
-## No matter how kind you are, German children are kinder.
+## What did one plate say to the other plate? Dinner is on me!
