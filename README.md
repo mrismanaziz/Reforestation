@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-An ion! 
+## No matter how kind you are, German children are kinder.
