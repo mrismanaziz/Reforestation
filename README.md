@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
