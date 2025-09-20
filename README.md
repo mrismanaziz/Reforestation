@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
