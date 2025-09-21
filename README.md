@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
