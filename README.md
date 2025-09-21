@@ -1,1 +1,1 @@
-## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
+## An apple a day keeps the bullies away. If you throw it hard enough.
