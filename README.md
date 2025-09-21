@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
