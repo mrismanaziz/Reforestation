@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
