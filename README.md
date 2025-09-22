@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## I was thinking about moving to Moscow but there is no point Russian into things.
