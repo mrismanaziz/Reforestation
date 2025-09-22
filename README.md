@@ -1,1 +1,1 @@
-## My cat was just sick on the carpet, I don’t think it’s feline well.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
