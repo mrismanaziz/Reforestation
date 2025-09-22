@@ -1,1 +1,1 @@
-## I've just written a song about a tortilla. Well, it is more of a rap really.
+## I just wrote a book on reverse psychology. Do not read it!
