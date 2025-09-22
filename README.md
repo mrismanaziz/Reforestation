@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
