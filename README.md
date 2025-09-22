@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
