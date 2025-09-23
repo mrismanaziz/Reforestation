@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## I always wanted to look into why I procrastinate, but I keep putting it off. 
