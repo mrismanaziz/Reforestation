@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
