@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## I made a belt out of watches once... It was a waist of time.
