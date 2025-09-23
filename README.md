@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## Me and my mates are in a band called Duvet. We're a cover band.
