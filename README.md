@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## Our wedding was so beautiful, even the cake was in tiers.
