@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
