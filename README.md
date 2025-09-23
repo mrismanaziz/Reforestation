@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Why do we tell actors to “break a leg?” Because every play has a cast.
