@@ -1,1 +1,1 @@
-## What type of music do balloons hate? Pop music!
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
