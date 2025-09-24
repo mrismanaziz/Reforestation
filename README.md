@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## What did the digital clock say to the grandfather clock? Look, no hands!
