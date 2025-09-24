@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## What musical instrument is found in the bathroom? A tuba toothpaste.
