@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## Pie is $2.50 in Jamaica and $3.00 in The Bahamas. These are the pie-rates of the Caribbean.
