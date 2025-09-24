@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
