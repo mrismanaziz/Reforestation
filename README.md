@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## An apple a day keeps the bullies away. If you throw it hard enough.
