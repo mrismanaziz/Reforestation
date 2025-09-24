@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## What was a more important invention than the first telephone? The second one.
