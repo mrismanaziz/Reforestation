@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
