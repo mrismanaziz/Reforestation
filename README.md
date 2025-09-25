@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## Two silk worms had a race. They ended up in a tie.
