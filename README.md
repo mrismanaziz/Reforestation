@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## I made a belt out of watches once... It was a waist of time.
