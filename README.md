@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
