@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
