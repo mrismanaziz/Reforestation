@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## Two guys walked into a bar, the third one ducked.
