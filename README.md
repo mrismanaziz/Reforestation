@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
