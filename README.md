@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
