@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
