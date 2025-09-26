@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## What animal is always at a game of cricket? A bat.
