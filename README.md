@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
