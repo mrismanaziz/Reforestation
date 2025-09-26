@@ -1,1 +1,1 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
