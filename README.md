@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
