@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## I was in an 80's band called the prevention. We were better than the cure.
