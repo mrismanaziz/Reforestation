@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## What did one snowman say to the other snow man? Do you smell carrot?
