@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
