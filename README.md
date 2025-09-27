@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## Why did the tree go to the dentist? It needed a root canal.
