@@ -1,1 +1,2 @@
-## What do you call a group of killer whales playing instruments? An Orca-stra.
+## Why don't you find hippopotamuses hiding in trees?
+They're really good at it.
