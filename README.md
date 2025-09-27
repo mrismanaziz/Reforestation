@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
