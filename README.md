@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
