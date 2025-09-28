@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## Shout out to my grandma, that's the only way she can hear.
