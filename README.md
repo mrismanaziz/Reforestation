@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
