@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
