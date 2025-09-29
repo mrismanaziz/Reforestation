@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## Where do you learn to make banana splits? At sundae school.
