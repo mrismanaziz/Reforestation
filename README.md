@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## What's black and white and read all over? The newspaper.
