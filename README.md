@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Why was the strawberry sad? Its parents were in a jam.
