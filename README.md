@@ -1,1 +1,1 @@
-## What do you call an old snowman? Water.
+## Where did Captain Hook get his hook? From a second hand store.
