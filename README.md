@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## Why do bees hum? Because they don't know the words.
