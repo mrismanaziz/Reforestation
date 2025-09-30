@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## There's not really any training for garbagemen. They just pick things up as they go.
