@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
