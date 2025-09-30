@@ -1,1 +1,1 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## What's the best thing about elevator jokes? They work on so many levels.
