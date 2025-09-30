@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
