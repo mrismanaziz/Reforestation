@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
