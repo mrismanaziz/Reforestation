@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## I boiled a funny bone last night and had a laughing stock
