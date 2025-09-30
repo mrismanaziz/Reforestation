@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## What's the best thing about elevator jokes? They work on so many levels.
