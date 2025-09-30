@@ -1,1 +1,1 @@
-## I'd like to start a diet, but I've got too much on my plate right now.
+## Why do fish live in salt water? Because pepper makes them sneeze!
