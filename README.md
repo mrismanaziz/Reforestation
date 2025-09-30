@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
