@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## How does a French skeleton say hello? Bone-jour.
