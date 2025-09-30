@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## New atoms frequently lose electrons when they fail to keep an ion them.
