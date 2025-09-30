@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## Where do you learn to make banana splits? At sundae school.
