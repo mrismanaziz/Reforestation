@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
