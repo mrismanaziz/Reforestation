@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## Ever wondered why bees hum? It's because they don't know the words.
