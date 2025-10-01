@@ -1,1 +1,1 @@
-## How do you teach a kid to climb stairs? There is a step by step guide.
+## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
