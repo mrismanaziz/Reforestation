@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## Why did the octopus beat the shark in a fight? Because it was well armed.
