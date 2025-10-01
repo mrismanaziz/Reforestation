@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
