@@ -1,1 +1,2 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## Where do cats write notes?
+Scratch Paper!
