@@ -1,2 +1,1 @@
-## Where do cats write notes?
-Scratch Paper!
+## I considered building the patio by myself. But I didn't have the stones.
