@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
