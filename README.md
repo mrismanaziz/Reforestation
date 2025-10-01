@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
