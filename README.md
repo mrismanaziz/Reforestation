@@ -1,1 +1,3 @@
-## I went to the zoo yesterday and saw a baguette in a cage. It was bread in captivity.
+## Why do pumpkins sit on people’s porches?
+
+They have no hands to knock on the door.
