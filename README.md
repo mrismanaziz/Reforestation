@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## How do you teach a kid to climb stairs? There is a step by step guide.
