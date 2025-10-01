@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
