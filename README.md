@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## What's red and bad for your teeth? A Brick.
