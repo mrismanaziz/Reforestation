@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## What do you get hanging from Apple trees? Sore arms.
