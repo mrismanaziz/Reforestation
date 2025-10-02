@@ -1,1 +1,1 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
