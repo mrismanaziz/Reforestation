@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## What does an angry pepper do? It gets jalapeño face.
