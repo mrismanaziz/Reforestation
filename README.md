@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
