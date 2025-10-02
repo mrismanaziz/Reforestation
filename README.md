@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## What do you do when your bunny gets wet? You get your hare dryer.
