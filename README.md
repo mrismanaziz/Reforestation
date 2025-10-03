@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
