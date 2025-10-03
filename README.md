@@ -1,1 +1,1 @@
-## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
