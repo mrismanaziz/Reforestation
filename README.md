@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
