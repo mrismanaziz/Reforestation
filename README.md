@@ -1,1 +1,2 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## Why did Mozart kill all his chickens?
+Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
