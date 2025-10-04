@@ -1,2 +1,1 @@
-## Why did Mozart kill all his chickens?
-Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
