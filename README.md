@@ -1,1 +1,3 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## What was the pumpkin’s favorite sport?
+
+Squash.
