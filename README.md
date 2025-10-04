@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
