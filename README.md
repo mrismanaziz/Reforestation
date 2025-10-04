@@ -1,1 +1,1 @@
-## Why was the shirt happy to hang around the tank top? Because it was armless
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
