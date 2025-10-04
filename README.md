@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
