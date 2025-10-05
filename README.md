@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## What do you call two guys hanging out by your window? Kurt & Rod.
