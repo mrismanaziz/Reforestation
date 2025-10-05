@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## Geology rocks, but Geography is where it's at!
