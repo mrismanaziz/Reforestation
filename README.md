@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## Chances are if you' ve seen one shopping center, you've seen a mall.
