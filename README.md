@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
