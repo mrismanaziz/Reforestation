@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
