@@ -1,1 +1,1 @@
-## What do you do on a remote island? Try and find the TV island it belongs to.
+## Remember, the best angle to approach a problem from is the "try" angle.
