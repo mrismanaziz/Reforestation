@@ -1,1 +1,1 @@
-## What do you call a pile of cats?  A Meowtain.
+## What do you call a beehive without the b's? An eehive.
