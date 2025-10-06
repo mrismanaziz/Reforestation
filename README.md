@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
