@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
