@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## What do you call a cow with no legs? Ground beef.
