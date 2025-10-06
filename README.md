@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## What did one nut say as he chased another nut?  I'm a cashew!
