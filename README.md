@@ -1,2 +1,2 @@
-## Why did Mozart kill all his chickens?
-Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+## What did the hat say to the scarf?
+You can hang around. I'll just go on ahead.
