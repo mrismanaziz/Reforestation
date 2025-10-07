@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## This furniture store keeps emailing me, all I wanted was one night stand!
