@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
