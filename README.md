@@ -1,1 +1,1 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
