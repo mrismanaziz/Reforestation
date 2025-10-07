@@ -1,1 +1,2 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Hostess: Do you have a preference of where you sit?
+Dad: Down.
