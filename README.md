@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
