@@ -1,1 +1,1 @@
-## What kind of music do planets listen to? Nep-tunes.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
