@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## What's orange and sounds like a parrot? A Carrot.
