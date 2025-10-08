@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## Why don't eggs tell jokes? They'd crack each other up
