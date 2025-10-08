@@ -1,1 +1,3 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
+
+So, I got a job at a travel agency.  Now, I know I'll be going places.
