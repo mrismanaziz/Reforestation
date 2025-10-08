@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## I couldn't get a reservation at the library. They were completely booked.
