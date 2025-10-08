@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## My dentist is the best, he even has a little plaque!
