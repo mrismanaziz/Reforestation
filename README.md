@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
