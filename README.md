@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
