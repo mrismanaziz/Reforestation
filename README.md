@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## How come the stadium got hot after the game? Because all of the fans left.
