@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## How does a dyslexic poet write? Inverse.
