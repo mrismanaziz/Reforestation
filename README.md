@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## I wouldn't buy anything with velcro. It's a total rip-off.
