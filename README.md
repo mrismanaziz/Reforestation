@@ -1,1 +1,1 @@
-## Why did the cookie cry? It was feeling crumby.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
