@@ -1,1 +1,1 @@
-## I used to be addicted to soap, but I'm clean now.
+## Why are fish easy to weigh? Because they have their own scales.
