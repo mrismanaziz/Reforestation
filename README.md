@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
