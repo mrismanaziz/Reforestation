@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Why did the cookie cry? It was feeling crumby.
