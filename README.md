@@ -1,1 +1,1 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
