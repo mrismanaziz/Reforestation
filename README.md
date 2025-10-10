@@ -1,1 +1,1 @@
-## The shovel was a ground-breaking invention.
+## Why do ducks make great detectives? They always quack the case.
