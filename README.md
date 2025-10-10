@@ -1,2 +1,1 @@
-## Cosmetic surgery used to be such a taboo subject.
-Now you can talk about Botox and nobody raises an eyebrow.
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
