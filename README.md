@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
