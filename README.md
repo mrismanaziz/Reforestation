@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
