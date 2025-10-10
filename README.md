@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
