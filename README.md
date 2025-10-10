@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Have you ever seen fruit preserves being made? It's jarring.
