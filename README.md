@@ -1,1 +1,1 @@
-## What do you call a group of killer whales playing instruments? An Orca-stra.
+## Why did the belt go to prison? He held up a pair of pants!
