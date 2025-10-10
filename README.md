@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-BREATH!!
+## When will the little snake arrive? I don't know but he won't be long...
