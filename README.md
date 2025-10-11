@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## Thanks for explaining the word "many" to me. It means a lot.
