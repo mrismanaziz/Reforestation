@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
