@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
