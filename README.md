@@ -1,1 +1,1 @@
-## What do you call a fake noodle? An impasta.
+## What do you call a droid that takes the long way around? R2 detour.
