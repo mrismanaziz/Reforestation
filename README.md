@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
