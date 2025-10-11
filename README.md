@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## What's a ninja's favorite type of shoes? Sneakers!
