@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## How do you organize a space party? You planet.
