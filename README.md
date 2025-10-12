@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## This furniture store keeps emailing me, all I wanted was one night stand!
