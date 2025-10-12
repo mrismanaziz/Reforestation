@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Don't trust atoms. They make up everything.
