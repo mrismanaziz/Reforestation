@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
