@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## Why are skeletons so calm? Because nothing gets under their skin.
