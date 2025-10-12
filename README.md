@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
