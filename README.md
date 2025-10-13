@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
