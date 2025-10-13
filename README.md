@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## Sore throats are a pain in the neck!
