@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
