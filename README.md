@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
