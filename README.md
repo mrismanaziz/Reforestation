@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
