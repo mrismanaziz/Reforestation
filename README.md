@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
