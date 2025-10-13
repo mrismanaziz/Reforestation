@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
