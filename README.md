@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
