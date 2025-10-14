@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Why do crabs never give to charity? Because they’re shellfish.
