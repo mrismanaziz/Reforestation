@@ -1,1 +1,1 @@
-## Have you heard of the band 1023MB? They haven't got a gig yet.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
