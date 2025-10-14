@@ -1,1 +1,1 @@
-## I've just written a song about a tortilla. Well, it is more of a rap really.
+## What did one plate say to the other plate? Dinner is on me!
