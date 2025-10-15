@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## How do you make a hankie dance? Put a little boogie in it.
