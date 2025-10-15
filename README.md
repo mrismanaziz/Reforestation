@@ -1,1 +1,1 @@
-## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
