@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## People are making apocalypse jokes like there’s no tomorrow.
