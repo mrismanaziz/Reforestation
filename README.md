@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## How many tickles does it take to tickle an octopus? Ten-tickles!
