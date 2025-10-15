@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## What do you give a sick lemon? Lemonaid.
