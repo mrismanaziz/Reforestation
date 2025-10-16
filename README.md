@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## Whoever invented the knock-knock joke should get a no bell prize.
