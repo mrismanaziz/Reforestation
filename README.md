@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## How does a dyslexic poet write? Inverse.
