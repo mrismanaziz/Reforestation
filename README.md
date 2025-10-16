@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
