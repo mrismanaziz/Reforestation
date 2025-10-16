@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## Why did the house go to the doctor? It was having window panes.
