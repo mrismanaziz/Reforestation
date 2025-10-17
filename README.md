@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Why was the robot angry? Because someone kept pressing his buttons!
