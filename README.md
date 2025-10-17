@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
