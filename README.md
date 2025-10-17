@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## What concert costs only 45 cents? 50 cent featuring Nickelback.
