@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## What do you call two guys hanging out by your window? Kurt & Rod.
