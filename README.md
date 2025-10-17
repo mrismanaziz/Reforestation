@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## How do you make Lady Gaga cry? Poker face. 
