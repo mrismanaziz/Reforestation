@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## Where do young cows eat lunch? In the calf-ateria.
