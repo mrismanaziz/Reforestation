@@ -1,1 +1,1 @@
-## When you have a bladder infection, urine trouble.
+## Why are skeletons so calm? Because nothing gets under their skin.
