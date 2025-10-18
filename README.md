@@ -1,1 +1,2 @@
-## How do the trees get on the internet? They log on.
+## Why don't you find hippopotamuses hiding in trees?
+They're really good at it.
