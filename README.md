@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## You can't run through a camp site. You can only ran, because it's past tents.
