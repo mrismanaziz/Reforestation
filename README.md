@@ -1,1 +1,1 @@
-## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
+## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
