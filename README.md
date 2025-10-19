@@ -1,1 +1,1 @@
-## what happens when you cross a sheep with a kangaroo ? A woolly jumper!
+## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
