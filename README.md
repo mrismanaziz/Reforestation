@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## I started a new business making yachts in my attic this year...the sails are going through the roof
