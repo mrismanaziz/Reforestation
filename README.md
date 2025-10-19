@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## The rotation of earth really makes my day.
