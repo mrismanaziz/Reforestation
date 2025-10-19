@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
