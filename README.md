@@ -1,1 +1,1 @@
-## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
