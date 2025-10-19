@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-BREATH!!
+## New atoms frequently lose electrons when they fail to keep an ion them.
