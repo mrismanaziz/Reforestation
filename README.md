@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
