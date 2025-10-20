@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
