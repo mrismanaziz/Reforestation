@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## Did you hear about the two thieves who stole a calendar? They each got six months.
