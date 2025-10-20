@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
