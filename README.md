@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Two silk worms had a race. They ended up in a tie.
