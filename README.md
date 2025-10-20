@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## What do prisoners use to call each other? Cell phones.
