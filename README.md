@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
