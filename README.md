@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
