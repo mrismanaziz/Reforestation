@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
