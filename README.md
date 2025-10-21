@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## How do you make a hankie dance? Put a little boogie in it.
