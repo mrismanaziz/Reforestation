@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## The rotation of earth really makes my day.
