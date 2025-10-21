@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## Why did the man put his money in the freezer? He wanted cold hard cash!
