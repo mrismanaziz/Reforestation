@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
