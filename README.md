@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
