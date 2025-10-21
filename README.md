@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## Do you know where you can get chicken broth in bulk? The stock market.
