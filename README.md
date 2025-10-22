@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
