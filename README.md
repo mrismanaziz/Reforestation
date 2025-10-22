@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
