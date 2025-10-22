@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## What did the ocean say to the beach? Thanks for all the sediment.
