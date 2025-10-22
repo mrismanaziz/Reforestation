@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
