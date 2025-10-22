@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
