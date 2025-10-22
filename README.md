@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-An ion! 
+## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
