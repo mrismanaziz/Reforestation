@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Where do rabbits go after they get married? On a bunny-moon.
