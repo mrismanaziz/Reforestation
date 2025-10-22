@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Why was the shirt happy to hang around the tank top? Because it was armless
