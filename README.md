@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## When do doctors get angry? When they run out of patients.
