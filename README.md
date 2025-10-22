@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
