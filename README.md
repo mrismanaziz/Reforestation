@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
