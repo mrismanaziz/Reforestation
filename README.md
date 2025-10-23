@@ -1,1 +1,1 @@
-## My New Years resolution is to stop leaving things so late.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
