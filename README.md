@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
