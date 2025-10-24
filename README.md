@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## What do you call a boy who stopped digging holes? Douglas.
