@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
