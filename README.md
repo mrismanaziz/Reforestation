@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## Why do bees have sticky hair? Because they use honey combs!
