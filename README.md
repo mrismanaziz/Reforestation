@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## What did the mountain climber name his son? Cliff.
