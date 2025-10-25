@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
