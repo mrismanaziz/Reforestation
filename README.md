@@ -1,1 +1,1 @@
-## Pie is $2.50 in Jamaica and $3.00 in The Bahamas. These are the pie-rates of the Caribbean.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
