@@ -1,1 +1,1 @@
-## What do vegetarian zombies eat? Grrrrrainnnnnssss.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
