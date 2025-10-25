@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-They're really good at it.
+## Just read a few facts about frogs. They were ribbiting.
