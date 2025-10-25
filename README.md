@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
