@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
