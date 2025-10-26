@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## When does a joke become a dad joke? When it becomes apparent.
