@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
