@@ -1,1 +1,1 @@
-## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
