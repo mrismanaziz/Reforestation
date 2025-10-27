@@ -1,1 +1,1 @@
-## Someone asked me to name two structures that hold water. I said "Well dam"
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
