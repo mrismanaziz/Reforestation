@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
