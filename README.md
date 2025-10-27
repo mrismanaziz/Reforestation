@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## Why don't sharks eat clowns?  Because they taste funny.
