@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## How many South Americans does it take to change a lightbulb? A Brazilian
