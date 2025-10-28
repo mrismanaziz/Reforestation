@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## I couldn't get a reservation at the library. They were completely booked.
