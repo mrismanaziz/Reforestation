@@ -1,1 +1,1 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## Why did the melons plan a big wedding? Because they cantaloupe!
