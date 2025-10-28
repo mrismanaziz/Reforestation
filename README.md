@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## What do computers and air conditioners have in common? They both become useless when you open windows.
