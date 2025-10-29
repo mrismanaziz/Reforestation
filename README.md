@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-Park your car, man.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
