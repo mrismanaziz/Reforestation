@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
