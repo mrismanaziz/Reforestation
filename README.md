@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
