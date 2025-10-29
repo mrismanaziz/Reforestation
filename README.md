@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
