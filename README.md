@@ -1,1 +1,2 @@
-## How does a French skeleton say hello? Bone-jour.
+## What do you do when you see a space man?
+Park your car, man.
