@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-Sign Language
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
