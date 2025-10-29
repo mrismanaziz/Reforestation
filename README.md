@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## I used to work in a shoe recycling shop. It was sole destroying.
