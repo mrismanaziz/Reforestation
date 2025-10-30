@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
