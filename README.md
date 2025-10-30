@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
