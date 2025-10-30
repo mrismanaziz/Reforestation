@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Why didn’t the skeleton cross the road? Because he had no guts.
