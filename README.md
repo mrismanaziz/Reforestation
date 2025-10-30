@@ -1,1 +1,1 @@
-## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
+## My wife said I was immature. So I told her to get out of my fort.
