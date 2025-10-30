@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
