@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## I used to be a banker, but I lost interest.
