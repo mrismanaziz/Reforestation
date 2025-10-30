@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
