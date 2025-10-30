@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## Why do we tell actors to “break a leg?” Because every play has a cast.
