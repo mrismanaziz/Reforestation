@@ -1,1 +1,1 @@
-## My New Years resolution is to stop leaving things so late.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
