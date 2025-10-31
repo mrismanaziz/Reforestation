@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## How does a French skeleton say hello? Bone-jour.
