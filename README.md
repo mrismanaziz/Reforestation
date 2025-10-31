@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
