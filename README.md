@@ -1,1 +1,1 @@
-## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
