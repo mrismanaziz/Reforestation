@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## Do I enjoy making courthouse puns? Guilty
