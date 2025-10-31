@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
