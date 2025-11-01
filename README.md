@@ -1,1 +1,1 @@
-## When you have a bladder infection, urine trouble.
+## No matter how kind you are, German children are kinder.
