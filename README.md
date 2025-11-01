@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## What biscuit does a short person like? Shortbread. 
