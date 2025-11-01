@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## Did you hear about the two thieves who stole a calendar? They each got six months.
