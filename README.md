@@ -1,1 +1,2 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## Where do cats write notes?
+Scratch Paper!
