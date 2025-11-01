@@ -1,1 +1,1 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## I asked a frenchman if he played video games. He said "Wii"
