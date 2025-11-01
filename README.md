@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## How do you organize a space party? You planet.
