@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## What's black and white and read all over? The newspaper.
