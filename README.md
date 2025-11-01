@@ -1,1 +1,1 @@
-## No matter how kind you are, German children are kinder.
+## Waking up this morning was an eye-opening experience.
