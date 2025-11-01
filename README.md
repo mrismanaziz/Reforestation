@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
