@@ -1,1 +1,2 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## "Dad, I'm cold."
+"Go stand in the corner, I hear it's 90 degrees."
