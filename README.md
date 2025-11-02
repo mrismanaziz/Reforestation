@@ -1,1 +1,1 @@
-## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
+## Why did the kid cross the playground? To get to the other slide.
