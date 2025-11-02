@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## Where do owls go to buy their baby clothes? The owlet malls.
