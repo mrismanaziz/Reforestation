@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## What do you call an alligator in a vest? An in-vest-igator!
