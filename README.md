@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
