@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## Why was the shirt happy to hang around the tank top? Because it was armless
