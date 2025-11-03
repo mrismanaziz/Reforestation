@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
