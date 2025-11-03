@@ -1,1 +1,1 @@
-## My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
