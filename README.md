@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-
-They can't control their pupils.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
