@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## Did you hear the joke about the wandering nun? She was a roman catholic.
