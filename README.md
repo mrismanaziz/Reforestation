@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
