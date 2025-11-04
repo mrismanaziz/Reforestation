@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## I was going to get a brain transplant, but I changed my mind
