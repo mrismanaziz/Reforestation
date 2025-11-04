@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## What do you call a troublesome Canadian high schooler? A poutine.
