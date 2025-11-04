@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
