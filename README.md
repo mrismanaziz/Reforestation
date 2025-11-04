@@ -1,1 +1,1 @@
-## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
+## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
