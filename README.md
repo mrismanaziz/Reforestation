@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
