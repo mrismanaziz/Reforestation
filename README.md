@@ -1,1 +1,2 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## What's large, grey, and doesn't matter?
+An irrelephant.
