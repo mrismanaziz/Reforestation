@@ -1,1 +1,1 @@
-## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
