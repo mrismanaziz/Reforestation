@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## How many tickles does it take to tickle an octopus? Ten-tickles!
