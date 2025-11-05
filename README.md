@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
