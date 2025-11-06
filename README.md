@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
