@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
