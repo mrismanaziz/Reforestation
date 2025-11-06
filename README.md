@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-Dad: Down.
+## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
