@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
