@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Whoever invented the knock-knock joke should get a no bell prize.
