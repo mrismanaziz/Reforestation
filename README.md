@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
