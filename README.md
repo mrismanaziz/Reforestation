@@ -1,1 +1,1 @@
-## Pie is $2.50 in Jamaica and $3.00 in The Bahamas. These are the pie-rates of the Caribbean.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
