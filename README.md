@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## What do you call a sheep with no legs? A cloud.
