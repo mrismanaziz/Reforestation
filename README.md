@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
