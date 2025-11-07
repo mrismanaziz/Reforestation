@@ -1,1 +1,1 @@
-## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
+## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
