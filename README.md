@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
