@@ -1,1 +1,3 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## Why do pumpkins sit on people’s porches?
+
+They have no hands to knock on the door.
