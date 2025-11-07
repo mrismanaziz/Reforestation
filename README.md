@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Why is Peter Pan always flying? Because he Neverlands.
