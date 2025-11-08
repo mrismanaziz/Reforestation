@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
