@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
