@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## What kind of bagel can fly? A plain bagel.
