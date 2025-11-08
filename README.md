@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
