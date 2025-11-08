@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## What was a more important invention than the first telephone? The second one.
