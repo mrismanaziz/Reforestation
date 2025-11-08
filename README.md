@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## It was raining cats and dogs the other day. I almost stepped in a poodle.
