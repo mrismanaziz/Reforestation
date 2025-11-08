@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
