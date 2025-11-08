@@ -1,1 +1,1 @@
-## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
+## What did the beaver say to the tree? It's been nice gnawing you.
