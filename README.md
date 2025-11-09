@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
