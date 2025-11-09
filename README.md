@@ -1,1 +1,2 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## Some people say that I never got over my obsession with Phil Collins.
+But take a look at me now.
