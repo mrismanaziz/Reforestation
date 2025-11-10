@@ -1,1 +1,2 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## Hostess: Do you have a preference of where you sit?
+Dad: Down.
