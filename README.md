@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
