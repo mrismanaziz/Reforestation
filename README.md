@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
