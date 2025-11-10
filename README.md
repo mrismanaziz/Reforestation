@@ -1,2 +1,3 @@
-## Hostess: Do you have a preference of where you sit?
-Dad: Down.
+## Why do pumpkins sit on people’s porches?
+
+They have no hands to knock on the door.
