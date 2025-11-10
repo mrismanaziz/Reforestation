@@ -1,1 +1,1 @@
-## How do you make a water bed more bouncy. You use Spring Water
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
