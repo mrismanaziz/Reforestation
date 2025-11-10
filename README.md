@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## Shout out to my grandma, that's the only way she can hear.
