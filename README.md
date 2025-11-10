@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## Did you know that ghosts call their true love their ghoul-friend?
