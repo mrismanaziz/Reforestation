@@ -1,1 +1,3 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## What was the pumpkin’s favorite sport?
+
+Squash.
