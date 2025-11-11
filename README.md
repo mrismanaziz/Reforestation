@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
