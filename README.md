@@ -1,1 +1,1 @@
-## What do you do on a remote island? Try and find the TV island it belongs to.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
