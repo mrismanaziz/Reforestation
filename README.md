@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
