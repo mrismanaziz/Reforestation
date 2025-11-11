@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## Why do fish live in salt water? Because pepper makes them sneeze!
