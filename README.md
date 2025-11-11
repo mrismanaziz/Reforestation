@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
