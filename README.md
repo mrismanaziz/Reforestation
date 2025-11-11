@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## Did you know that ghosts call their true love their ghoul-friend?
