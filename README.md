@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
