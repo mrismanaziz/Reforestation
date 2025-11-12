@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## How come the stadium got hot after the game? Because all of the fans left.
