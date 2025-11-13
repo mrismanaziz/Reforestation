@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
