@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
