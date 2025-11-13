@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## What has ears but cannot hear? A field of corn.
