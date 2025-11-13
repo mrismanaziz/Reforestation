@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## How do you make holy water? You boil the hell out of it.
