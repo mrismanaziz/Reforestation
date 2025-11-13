@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
