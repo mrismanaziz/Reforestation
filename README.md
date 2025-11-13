@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Want to hear a joke about construction? Nah, I'm still working on it.
