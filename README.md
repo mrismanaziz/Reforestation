@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## My wife said I was immature. So I told her to get out of my fort.
