@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## I tried to write a chemistry joke, but could never get a reaction.
