@@ -1,1 +1,1 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
