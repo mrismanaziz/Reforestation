@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## I couldn't figure out how the seat belt worked. Then it just clicked.
