@@ -1,1 +1,1 @@
-## It's difficult to say what my wife does, she sells sea shells by the sea shore.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
