@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-Red paint!
+## Why do bears have hairy coats? Fur protection.
