@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## Why do you never see elephants hiding in trees? Because they're so good at it.
