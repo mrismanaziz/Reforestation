@@ -1,1 +1,2 @@
-## What do you call a fake noodle? An impasta.
+## What is red and smells like blue paint?
+Red paint!
