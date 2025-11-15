@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
