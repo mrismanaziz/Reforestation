@@ -1,2 +1,1 @@
-## Cosmetic surgery used to be such a taboo subject.
-Now you can talk about Botox and nobody raises an eyebrow.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
