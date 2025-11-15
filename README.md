@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
