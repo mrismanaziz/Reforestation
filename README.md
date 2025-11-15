@@ -1,1 +1,1 @@
-## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
+## Have you heard the story about the magic tractor? It drove down the road and turned into a field.
