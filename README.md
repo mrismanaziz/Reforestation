@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## I had a dream that I was a muffler last night. I woke up exhausted!
