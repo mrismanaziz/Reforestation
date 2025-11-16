@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## I've got a joke about vegetables for you... but it's a bit corny.
