@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
