@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## I boiled a funny bone last night and had a laughing stock
