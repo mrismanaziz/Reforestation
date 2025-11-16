@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## "I'll call you later." Don't call me later, call me Dad.
