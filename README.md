@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## Why are skeletons so calm? Because nothing gets under their skin.
