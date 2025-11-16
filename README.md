@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## You know that cemetery up the road? People are dying to get in there.
