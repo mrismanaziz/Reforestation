@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What did the fish say when it swam into a wall? Damn!
