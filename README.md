@@ -1,1 +1,1 @@
-## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
