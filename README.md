@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## What did the digital clock say to the grandfather clock? Look, no hands!
