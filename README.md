@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
