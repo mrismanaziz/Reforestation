@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
