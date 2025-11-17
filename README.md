@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
