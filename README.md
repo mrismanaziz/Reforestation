@@ -1,1 +1,1 @@
-## What did the sea say to the sand? "We have to stop meeting like this."
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
