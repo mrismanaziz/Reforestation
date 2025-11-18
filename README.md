@@ -1,1 +1,1 @@
-## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
