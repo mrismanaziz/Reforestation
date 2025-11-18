@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
