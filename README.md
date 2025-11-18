@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
