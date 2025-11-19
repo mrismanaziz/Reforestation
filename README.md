@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
