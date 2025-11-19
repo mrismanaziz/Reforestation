@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
