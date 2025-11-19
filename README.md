@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
