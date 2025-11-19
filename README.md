@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
