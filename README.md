@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## What do you call corn that joins the army? Kernel.
