@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
