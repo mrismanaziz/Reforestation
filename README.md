@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
