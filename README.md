@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## Two silk worms had a race. They ended up in a tie.
