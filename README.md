@@ -1,1 +1,1 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
