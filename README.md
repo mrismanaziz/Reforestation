@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
