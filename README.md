@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## A Skeleton walked into a bar he said I need a beer and a mop
