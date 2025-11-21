@@ -1,1 +1,1 @@
-## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
