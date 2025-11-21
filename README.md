@@ -1,1 +1,3 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## What is the difference between ignorance and apathy?
+
+I don't know and I don't care.
