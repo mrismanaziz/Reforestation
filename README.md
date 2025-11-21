@@ -1,1 +1,1 @@
-## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
