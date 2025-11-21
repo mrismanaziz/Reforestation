@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
