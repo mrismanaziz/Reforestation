@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
