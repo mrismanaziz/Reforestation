@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
