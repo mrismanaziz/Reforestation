@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
