@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
