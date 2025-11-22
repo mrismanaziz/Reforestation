@@ -1,1 +1,1 @@
-## I can't take my dog to the pond anymore because the ducks keep attacking him. That's what I get for buying a pure bread dog.
+## What did one wall say to the other wall? I'll meet you at the corner!
