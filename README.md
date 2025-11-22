@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## A magician was driving down the street and then he turned into a driveway.
