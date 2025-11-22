@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
