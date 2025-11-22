@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## What is the hardest part about sky diving? The ground.
