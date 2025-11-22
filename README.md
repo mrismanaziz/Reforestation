@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
