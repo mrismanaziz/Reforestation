@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Want to hear a joke about construction? Nah, I'm still working on it.
