@@ -1,1 +1,1 @@
-## Every night at 11:11, I make a wish that someone will come fix my broken clock.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
