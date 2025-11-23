@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## Where does Napoleon keep his armies? In his sleevies.
