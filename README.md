@@ -1,2 +1,1 @@
-## Why did Mozart kill all his chickens?
-Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+## Why did the banana go to the doctor? He was not "peeling" well.
