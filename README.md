@@ -1,1 +1,1 @@
-## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
