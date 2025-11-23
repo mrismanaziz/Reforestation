@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
