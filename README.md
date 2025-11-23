@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
