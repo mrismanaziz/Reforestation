@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## I considered building the patio by myself. But I didn't have the stones.
