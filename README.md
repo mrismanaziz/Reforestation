@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
