@@ -1,1 +1,1 @@
-## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
