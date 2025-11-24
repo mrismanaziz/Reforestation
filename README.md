@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## How many tickles does it take to tickle an octopus? Ten-tickles!
