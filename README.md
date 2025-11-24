@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
