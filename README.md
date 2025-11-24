@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## What do you do when your bunny gets wet? You get your hare dryer.
