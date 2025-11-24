@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## Mountains aren't just funny, they are hill areas
