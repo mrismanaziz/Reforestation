@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
