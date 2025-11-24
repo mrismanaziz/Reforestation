@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## I’m on a whiskey diet. I’ve lost three days already.
