@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
