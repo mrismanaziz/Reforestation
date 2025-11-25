@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## Why did the tomato blush? Because it saw the salad dressing.
