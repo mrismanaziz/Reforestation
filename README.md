@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## What did the left eye say to the right eye? Between us, something smells!
