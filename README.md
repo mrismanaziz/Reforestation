@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## Why are fish easy to weigh? Because they have their own scales.
