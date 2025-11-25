@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## What time did the man go to the dentist? Tooth hurt-y.
