@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## What did the sea say to the sand? "We have to stop meeting like this."
