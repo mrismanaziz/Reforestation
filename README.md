@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## What did Yoda say when he saw himself in 4K? "HDMI"
