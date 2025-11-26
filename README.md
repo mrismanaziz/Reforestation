@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
