@@ -1,1 +1,1 @@
-## What do you do on a remote island? Try and find the TV island it belongs to.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
