@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## Thanks for explaining the word "many" to me. It means a lot.
