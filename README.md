@@ -1,1 +1,1 @@
-## How do you make a water bed more bouncy. You use Spring Water
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
