@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## People are making apocalypse jokes like there’s no tomorrow.
