@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
