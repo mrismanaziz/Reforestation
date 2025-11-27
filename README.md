@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
