@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
