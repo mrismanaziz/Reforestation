@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## What did one plate say to the other plate? Dinner is on me!
