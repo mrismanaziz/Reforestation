@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## What was a more important invention than the first telephone? The second one.
