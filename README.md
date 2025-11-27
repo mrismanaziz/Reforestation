@@ -1,1 +1,1 @@
-## I think circles are pointless.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
