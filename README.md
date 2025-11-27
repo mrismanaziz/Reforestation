@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## Want to hear my pizza joke? Never mind, it's too cheesy.
