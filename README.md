@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## What do you call a fat psychic? A four-chin teller.
