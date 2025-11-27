@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## Why did the clown have neck pain? - Because he slept funny
