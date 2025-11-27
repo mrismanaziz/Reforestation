@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## What do you call a troublesome Canadian high schooler? A poutine.
