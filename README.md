@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Why was it called the dark ages? Because of all the knights. 
