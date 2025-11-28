@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## What do you call a careful wolf? Aware wolf.
