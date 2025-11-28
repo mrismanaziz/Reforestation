@@ -1,1 +1,1 @@
-## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
+## What does a clock do when it's hungry? It goes back four seconds!
