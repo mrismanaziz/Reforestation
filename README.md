@@ -1,1 +1,3 @@
-## What's black and white and read all over? The newspaper.
+## Never Trust Someone With Graph Paper...
+
+They're always plotting something.
