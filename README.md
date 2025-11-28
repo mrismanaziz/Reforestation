@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## What's black and white and read all over? The newspaper.
