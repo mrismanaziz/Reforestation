@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## I used to work for a soft drink can crusher. It was soda pressing.
