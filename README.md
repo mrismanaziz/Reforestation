@@ -1,1 +1,1 @@
-## I used to work for a soft drink can crusher. It was soda pressing.
+## Why was the robot angry? Because someone kept pressing his buttons!
