@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
