@@ -1,2 +1,1 @@
-## Cosmetic surgery used to be such a taboo subject.
-Now you can talk about Botox and nobody raises an eyebrow.
+## I was in an 80's band called the prevention. We were better than the cure.
