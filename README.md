@@ -1,1 +1,1 @@
-## Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
