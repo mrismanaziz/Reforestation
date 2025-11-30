@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
