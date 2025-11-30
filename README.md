@@ -1,1 +1,1 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
