@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
