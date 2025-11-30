@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Why did the clown have neck pain? - Because he slept funny
