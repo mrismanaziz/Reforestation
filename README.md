@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
