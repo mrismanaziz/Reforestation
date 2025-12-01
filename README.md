@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
