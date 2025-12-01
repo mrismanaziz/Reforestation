@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-Sign Language
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
