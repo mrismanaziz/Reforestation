@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
