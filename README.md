@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
