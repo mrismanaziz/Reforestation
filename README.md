@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-Park your car, man.
+## Our wedding was so beautiful, even the cake was in tiers.
