@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
