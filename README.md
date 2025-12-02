@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
