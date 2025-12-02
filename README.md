@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
