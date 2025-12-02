@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
