@@ -1,1 +1,2 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## What do you do when you see a space man?
+Park your car, man.
