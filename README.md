@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## I gave all my dead batteries away today, free of charge.
