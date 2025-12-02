@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
