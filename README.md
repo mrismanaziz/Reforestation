@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Recent survey revealed 6 out of 7 dwarf's aren't happy.
