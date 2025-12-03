@@ -1,1 +1,3 @@
-## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
+## What was the pumpkin’s favorite sport?
+
+Squash.
