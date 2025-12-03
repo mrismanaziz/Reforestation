@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
