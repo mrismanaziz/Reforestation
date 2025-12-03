@@ -1,1 +1,1 @@
-## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
