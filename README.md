@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
