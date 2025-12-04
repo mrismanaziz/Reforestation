@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-Dad: Down.
+## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
