@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## Have you heard about corduroy pillows?  They're making headlines!
