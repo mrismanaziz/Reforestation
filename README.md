@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
