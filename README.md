@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-
-Squash.
+## What did the pirate say on his 80th birthday? Aye Matey!
