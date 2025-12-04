@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## I considered building the patio by myself. But I didn't have the stones.
