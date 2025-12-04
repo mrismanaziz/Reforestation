@@ -1,1 +1,1 @@
-## What did the sea say to the sand? "We have to stop meeting like this."
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
