@@ -1,1 +1,2 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Hostess: Do you have a preference of where you sit?
+Dad: Down.
