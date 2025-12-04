@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
