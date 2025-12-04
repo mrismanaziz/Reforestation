@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## It doesn't matter how much you push the envelope. It will still be stationary.
