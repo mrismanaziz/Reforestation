@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## Writing with a broken pencil is pointless.
