@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## What do you call a bee that lives in America? A USB.
