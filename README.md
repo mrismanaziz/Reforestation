@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## What is a vampire's favorite fruit? A blood orange.
