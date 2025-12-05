@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## Two guys walked into a bar, the third one ducked.
