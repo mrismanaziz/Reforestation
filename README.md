@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## I boiled a funny bone last night and had a laughing stock
