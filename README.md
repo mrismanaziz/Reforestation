@@ -1,1 +1,1 @@
-## What do you call a pig with three eyes? Piiig
+## How are false teeth like stars? They come out at night!
