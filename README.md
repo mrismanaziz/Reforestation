@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## What do you get when you cross a chicken with a skunk? A fowl smell!
