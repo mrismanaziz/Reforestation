@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## I’ll tell you something about German sausages, they’re the wurst
