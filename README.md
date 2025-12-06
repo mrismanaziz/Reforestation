@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Why was ten scared of seven? Because seven ate nine.
