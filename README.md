@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
