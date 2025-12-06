@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## Why was the picture sent to prison? It was framed.
