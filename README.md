@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## How can you tell a vampire has a cold? They start coffin.
