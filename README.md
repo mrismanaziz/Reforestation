@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
