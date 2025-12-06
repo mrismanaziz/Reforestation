@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## I asked a frenchman if he played video games. He said "Wii"
