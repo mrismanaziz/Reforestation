@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
