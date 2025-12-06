@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## What do you call an alligator in a vest? An in-vest-igator!
