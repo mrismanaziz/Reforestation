@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## "I'm sorry." "Hi sorry, I'm dad"
