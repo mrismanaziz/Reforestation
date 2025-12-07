@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
