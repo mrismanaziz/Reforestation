@@ -1,2 +1,2 @@
-## What did the green grape say to the purple grape?
-BREATH!!
+## Why don't you find hippopotamuses hiding in trees?
+They're really good at it.
