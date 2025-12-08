@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-
-I don't know and I don't care.
+## You know that cemetery up the road? People are dying to get in there.
