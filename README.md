@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-Because his mother was a wafer so long
+## I thought about going on an all-almond diet. But that's just nuts.
