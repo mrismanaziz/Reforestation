@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## Our wedding was so beautiful, even the cake was in tiers.
