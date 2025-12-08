@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## What kind of dinosaur loves to sleep? A stega-snore-us.
