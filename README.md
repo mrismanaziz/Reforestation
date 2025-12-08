@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
