@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## You can't run through a camp site. You can only ran, because it's past tents.
