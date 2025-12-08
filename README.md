@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
