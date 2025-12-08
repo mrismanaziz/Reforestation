@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
