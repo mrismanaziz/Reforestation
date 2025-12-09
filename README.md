@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## What is a witch's favorite subject in school? Spelling!
