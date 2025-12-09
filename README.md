@@ -1,1 +1,1 @@
-## What did the Red light say to the Green light? Don't look at me I'm changing!
+## How do you find Will Smith in the snow?  Look for fresh prints.
