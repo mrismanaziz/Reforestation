@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## I've got a joke about vegetables for you... but it's a bit corny.
