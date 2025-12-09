@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## New atoms frequently lose electrons when they fail to keep an ion them.
