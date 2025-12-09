@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## What did one snowman say to the other snow man? Do you smell carrot?
