@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Why did the cookie cry? It was feeling crumby.
