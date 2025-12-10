@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## This furniture store keeps emailing me, all I wanted was one night stand!
