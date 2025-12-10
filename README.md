@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
