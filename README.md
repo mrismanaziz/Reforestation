@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-"Go stand in the corner, I hear it's 90 degrees."
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
