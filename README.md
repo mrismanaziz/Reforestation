@@ -1,2 +1,3 @@
-## "Dad, I'm cold."
-"Go stand in the corner, I hear it's 90 degrees."
+## I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
+
+So, I got a job at a travel agency.  Now, I know I'll be going places.
