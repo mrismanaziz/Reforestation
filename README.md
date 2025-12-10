@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
