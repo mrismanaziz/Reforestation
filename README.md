@@ -1,1 +1,2 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Hostess: Do you have a preference of where you sit?
+Dad: Down.
