@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## What did the left eye say to the right eye? Between us, something smells!
