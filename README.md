@@ -1,1 +1,2 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## "Dad, I'm cold."
+"Go stand in the corner, I hear it's 90 degrees."
