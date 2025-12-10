@@ -1,1 +1,1 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## Why was the strawberry sad? Its parents were in a jam.
