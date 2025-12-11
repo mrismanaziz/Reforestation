@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
