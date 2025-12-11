@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## Why did the kid throw the clock out the window? He wanted to see time fly!
