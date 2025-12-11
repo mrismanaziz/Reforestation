@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
