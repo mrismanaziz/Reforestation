@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
