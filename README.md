@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## How do you make a hankie dance? Put a little boogie in it.
