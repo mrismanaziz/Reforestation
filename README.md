@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Why do choirs keep buckets handy? So they can carry their tune
