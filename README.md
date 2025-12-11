@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## How do you get two whales in a car? Start in England and drive West.
