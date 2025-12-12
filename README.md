@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
