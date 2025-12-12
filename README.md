@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## What did Yoda say when he saw himself in 4K? "HDMI"
