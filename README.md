@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Man, I really love my furniture... me and my recliner go way back.
