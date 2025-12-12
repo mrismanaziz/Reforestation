@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
