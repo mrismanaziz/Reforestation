@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## What did the sea say to the sand? "We have to stop meeting like this."
