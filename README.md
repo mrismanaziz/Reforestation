@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## Why did the tree go to the dentist? It needed a root canal.
