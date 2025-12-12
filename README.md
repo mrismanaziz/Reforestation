@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
