@@ -1,1 +1,1 @@
-## What did the sea say to the sand? "We have to stop meeting like this."
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
