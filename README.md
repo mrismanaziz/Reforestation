@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
