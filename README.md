@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
