@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## Did you know that ghosts call their true love their ghoul-friend?
