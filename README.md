@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## A termite walks into a bar and asks “Is the bar tender here?”
