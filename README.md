@@ -1,1 +1,1 @@
-## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
+## Why do pirates not know the alphabet? They always get stuck at "C".
