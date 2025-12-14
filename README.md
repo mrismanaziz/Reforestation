@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
