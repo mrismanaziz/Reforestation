@@ -1,1 +1,1 @@
-## I always wanted to look into why I procrastinate, but I keep putting it off. 
+## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
