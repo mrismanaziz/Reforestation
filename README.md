@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## What do you get when you cross a snowman with a vampire? Frostbite.
