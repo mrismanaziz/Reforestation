@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## I always wanted to look into why I procrastinate, but I keep putting it off. 
