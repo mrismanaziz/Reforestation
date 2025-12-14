@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
