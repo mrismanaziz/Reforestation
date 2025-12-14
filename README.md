@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
