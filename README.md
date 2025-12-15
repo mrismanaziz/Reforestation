@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
