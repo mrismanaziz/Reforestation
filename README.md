@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Who did the wizard marry? His ghoul-friend
