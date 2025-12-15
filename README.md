@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
