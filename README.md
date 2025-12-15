@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## What do you call a group of killer whales playing instruments? An Orca-stra.
