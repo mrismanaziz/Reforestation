@@ -1,1 +1,2 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## What did the hat say to the scarf?
+You can hang around. I'll just go on ahead.
