@@ -1,1 +1,1 @@
-## Every night at 11:11, I make a wish that someone will come fix my broken clock.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
