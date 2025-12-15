@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
