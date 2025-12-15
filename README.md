@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-You can hang around. I'll just go on ahead.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
