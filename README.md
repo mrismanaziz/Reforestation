@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## What do you call a dad that has fallen through the ice? A Popsicle.
