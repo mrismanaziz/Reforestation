@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## Want to hear a joke about construction? Nah, I'm still working on it.
