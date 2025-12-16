@@ -1,1 +1,1 @@
-## Just read a few facts about frogs. They were ribbiting.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
