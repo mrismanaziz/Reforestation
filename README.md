@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Whoever invented the knock-knock joke should get a no bell prize.
