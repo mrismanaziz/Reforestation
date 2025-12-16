@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
