@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## My son is studying to be a surgeon, I just hope he makes the cut.
