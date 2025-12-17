@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## What don't watermelons get married? Because they cantaloupe.
