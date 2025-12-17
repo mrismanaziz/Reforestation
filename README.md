@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## Why can't eggs have love? They will break up too soon.
