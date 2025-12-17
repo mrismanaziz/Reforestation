@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
