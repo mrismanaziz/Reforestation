@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
