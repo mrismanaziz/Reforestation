@@ -1,1 +1,3 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Doctor: Do you want to hear the good news or the bad news?
+Patient: Good news please.
+Doctor: we're naming a disease after you.
