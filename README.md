@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
