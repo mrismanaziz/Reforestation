@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
