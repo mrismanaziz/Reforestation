@@ -1,1 +1,1 @@
-## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
+## What did one plate say to the other plate? Dinner is on me!
