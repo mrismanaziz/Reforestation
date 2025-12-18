@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Our wedding was so beautiful, even the cake was in tiers.
