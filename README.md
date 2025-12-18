@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
