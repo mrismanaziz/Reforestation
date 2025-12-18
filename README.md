@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
