@@ -1,1 +1,1 @@
-## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
