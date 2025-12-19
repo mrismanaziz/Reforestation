@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Milk is also the fastest liquid on earth – its pasteurized before you even see it
