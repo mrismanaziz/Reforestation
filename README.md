@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
