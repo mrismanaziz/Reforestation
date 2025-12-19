@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
