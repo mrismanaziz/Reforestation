@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
