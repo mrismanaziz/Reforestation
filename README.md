@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## An apple a day keeps the bullies away. If you throw it hard enough.
