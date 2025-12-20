@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## Why is the ocean always blue? Because the shore never waves back.
