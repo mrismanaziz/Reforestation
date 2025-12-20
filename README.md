@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## Why was it called the dark ages? Because of all the knights. 
