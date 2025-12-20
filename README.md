@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## Where do rabbits go after they get married? On a bunny-moon.
