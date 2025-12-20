@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## What was a more important invention than the first telephone? The second one.
