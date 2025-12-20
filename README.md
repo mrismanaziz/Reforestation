@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Why do bees hum? Because they don't know the words.
