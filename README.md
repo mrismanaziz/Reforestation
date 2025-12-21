@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-
-At the bottom! 
+## What do you call a dad that has fallen through the ice? A Popsicle.
