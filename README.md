@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-
-They're always plotting something.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
