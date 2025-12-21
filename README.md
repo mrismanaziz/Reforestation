@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
