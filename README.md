@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## I couldn't figure out how the seat belt worked. Then it just clicked.
