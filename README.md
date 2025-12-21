@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## Why is Peter Pan always flying? Because he Neverlands.
