@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
