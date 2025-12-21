@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
