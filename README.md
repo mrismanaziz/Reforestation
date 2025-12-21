@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## Whoever invented the knock-knock joke should get a no bell prize.
