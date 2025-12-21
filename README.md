@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## How come a man driving a train got struck by lightning? He was a good conductor.
