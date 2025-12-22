@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## To the guy who invented zero... thanks for nothing.
