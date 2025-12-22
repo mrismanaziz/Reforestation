@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## I asked a frenchman if he played video games. He said "Wii"
