@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## Why don't sharks eat clowns?  Because they taste funny.
