@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
