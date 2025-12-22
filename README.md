@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
