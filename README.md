@@ -1,1 +1,1 @@
-## I once lost a banana at court but then I appealed. 
+## Why are fish easy to weigh? Because they have their own scales.
