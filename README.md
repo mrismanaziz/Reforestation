@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## I wanted to be a tailor but I didn't suit the job
