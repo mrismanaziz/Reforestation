@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-Park your car, man.
+## How do locomotives know where they're going? Lots of training
