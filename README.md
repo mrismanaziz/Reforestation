@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
