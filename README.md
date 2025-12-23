@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
