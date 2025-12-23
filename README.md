@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## How do locomotives know where they're going? Lots of training
