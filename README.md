@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Waking up this morning was an eye-opening experience.
