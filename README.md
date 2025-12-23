@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## There's not really any training for garbagemen. They just pick things up as they go.
