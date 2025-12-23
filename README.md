@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
