@@ -1,1 +1,5 @@
-## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
+## A panda walks into a bar and says to the bartender “I’ll have a Scotch and . . . . . . . . . . . . . . Coke thank you”. 
+
+“Sure thing” the bartender replies and asks “but what’s with the big pause?” 
+
+The panda holds up his hands and says “I was born with them”
