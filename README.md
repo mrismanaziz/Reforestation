@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## No matter how kind you are, German children are kinder.
