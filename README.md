@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
