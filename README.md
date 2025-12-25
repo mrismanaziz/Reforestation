@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
