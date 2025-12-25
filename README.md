@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## What was a more important invention than the first telephone? The second one.
