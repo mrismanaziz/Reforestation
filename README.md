@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Why did the feline fail the lie detector test? Because he be lion.
