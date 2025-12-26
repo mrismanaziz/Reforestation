@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## what do you call a dog that can do magic tricks? a labracadabrador
