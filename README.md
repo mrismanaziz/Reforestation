@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## This is my step ladder. I never knew my real ladder.
