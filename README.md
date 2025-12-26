@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
