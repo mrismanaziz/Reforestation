@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
