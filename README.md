@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## Geology rocks, but Geography is where it's at!
