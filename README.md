@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
