@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## I accidentally took my cats meds last night. Don’t ask meow.
