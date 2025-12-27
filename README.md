@@ -1,1 +1,1 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## An apple a day keeps the bullies away. If you throw it hard enough.
