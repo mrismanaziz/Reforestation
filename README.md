@@ -1,1 +1,1 @@
-## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
