@@ -1,1 +1,1 @@
-## Why does Han Solo like gum? It's chewy!
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
