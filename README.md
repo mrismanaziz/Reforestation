@@ -1,1 +1,1 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
