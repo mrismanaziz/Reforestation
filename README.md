@@ -1,1 +1,1 @@
-## Every night at 11:11, I make a wish that someone will come fix my broken clock.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
