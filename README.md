@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## Have you heard about corduroy pillows?  They're making headlines!
