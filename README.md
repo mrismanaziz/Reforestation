@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## A termite walks into a bar and asks “Is the bar tender here?”
