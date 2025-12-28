@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## What did one nut say as he chased another nut?  I'm a cashew!
