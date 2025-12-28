@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## I just got fired from a florist, apparently I took too many leaves.
