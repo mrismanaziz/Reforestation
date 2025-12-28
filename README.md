@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## How does a French skeleton say hello? Bone-jour.
