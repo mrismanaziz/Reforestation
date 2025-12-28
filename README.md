@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
