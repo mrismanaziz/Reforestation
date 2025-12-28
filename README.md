@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
