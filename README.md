@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## I knew a guy who collected candy canes, they were all in mint condition
