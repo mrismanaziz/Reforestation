@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
