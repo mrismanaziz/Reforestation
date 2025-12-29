@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
