@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
