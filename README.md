@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## What does a clock do when it's hungry? It goes back four seconds!
