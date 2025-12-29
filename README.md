@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## What do you call an alligator in a vest? An in-vest-igator!
