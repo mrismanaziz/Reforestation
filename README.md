@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
