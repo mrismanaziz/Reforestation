@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
