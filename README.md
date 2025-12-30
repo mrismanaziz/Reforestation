@@ -1,1 +1,2 @@
-## What kind of bagel can fly? A plain bagel.
+## Where do cats write notes?
+Scratch Paper!
