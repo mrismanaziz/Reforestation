@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Where do young cows eat lunch? In the calf-ateria.
