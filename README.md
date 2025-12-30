@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
