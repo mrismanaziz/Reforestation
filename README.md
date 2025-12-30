@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Dad, can you put my shoes on? I don't think they'll fit me.
