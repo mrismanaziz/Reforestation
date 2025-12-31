@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
