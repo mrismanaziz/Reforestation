@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## What's black and white and read all over? The newspaper.
