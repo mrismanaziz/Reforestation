@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## I just got fired from a florist, apparently I took too many leaves.
