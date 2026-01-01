@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
