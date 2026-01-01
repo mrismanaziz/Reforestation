@@ -1,1 +1,3 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Never Trust Someone With Graph Paper...
+
+They're always plotting something.
