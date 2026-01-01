@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
