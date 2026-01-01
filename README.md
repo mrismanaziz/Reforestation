@@ -1,1 +1,1 @@
-## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
