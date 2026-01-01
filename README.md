@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## This morning I was wondering where the sun was, but then it dawned on me.
