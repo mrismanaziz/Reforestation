@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Why did the tomato blush? Because it saw the salad dressing.
