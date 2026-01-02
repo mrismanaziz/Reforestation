@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## Did you hear about the kidnapping at school? It's ok, he woke up.
