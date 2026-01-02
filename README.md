@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
