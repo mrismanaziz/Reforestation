@@ -1,2 +1,1 @@
-## Why did Mozart kill all his chickens?
-Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
