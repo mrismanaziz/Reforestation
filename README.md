@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
