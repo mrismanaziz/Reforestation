@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
