@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-An irrelephant.
+## Where do young cows eat lunch? In the calf-ateria.
