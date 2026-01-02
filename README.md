@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## I couldn't get a reservation at the library. They were completely booked.
