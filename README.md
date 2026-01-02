@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
