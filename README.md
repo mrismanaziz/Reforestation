@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## What's a ninja's favorite type of shoes? Sneakers!
