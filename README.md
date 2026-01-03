@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## What kind of music do planets listen to? Nep-tunes.
