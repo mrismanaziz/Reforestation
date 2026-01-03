@@ -1,1 +1,1 @@
-## How do you teach a kid to climb stairs? There is a step by step guide.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
