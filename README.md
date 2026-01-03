@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
