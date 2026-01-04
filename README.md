@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## Why did the scarecrow win an award? Because he was outstanding in his field.
