@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## I decided to sell my Hoover… well it was just collecting dust.
