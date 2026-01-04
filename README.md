@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
