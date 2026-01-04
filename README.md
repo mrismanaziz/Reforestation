@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
