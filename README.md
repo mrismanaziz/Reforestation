@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## What’s E.T. short for? He’s only got little legs.
