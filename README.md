@@ -1,1 +1,2 @@
-## I hate perforated lines, they're tearable.
+## Hostess: Do you have a preference of where you sit?
+Dad: Down.
