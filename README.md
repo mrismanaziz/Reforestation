@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-BREATH!!
+## Why do you never see elephants hiding in trees? Because they're so good at it.
