@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-Dad: Down.
+## Why are snake races so exciting? They're always neck and neck.
