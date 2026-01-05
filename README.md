@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
