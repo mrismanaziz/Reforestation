@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## Why did the sentence fail the driving test? It never came to a full stop.
