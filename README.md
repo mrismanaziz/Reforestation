@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Shout out to my grandma, that's the only way she can hear.
