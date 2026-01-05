@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Why was it called the dark ages? Because of all the knights. 
