@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
