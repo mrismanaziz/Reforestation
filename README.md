@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## Who is the coolest Doctor in the hospital? The hip Doctor!
