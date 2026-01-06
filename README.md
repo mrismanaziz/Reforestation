@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
