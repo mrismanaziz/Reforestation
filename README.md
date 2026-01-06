@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
