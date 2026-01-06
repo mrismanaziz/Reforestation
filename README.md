@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## What do you call a boy who stopped digging holes? Douglas.
