@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
