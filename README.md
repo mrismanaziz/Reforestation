@@ -1,1 +1,1 @@
-## Why does Han Solo like gum? It's chewy!
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
