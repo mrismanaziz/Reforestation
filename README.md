@@ -1,1 +1,1 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
