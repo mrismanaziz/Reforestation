@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## What do you call a boy who stopped digging holes? Douglas.
