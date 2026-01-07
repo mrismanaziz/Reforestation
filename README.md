@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## What did the pirate say on his 80th birthday? Aye Matey!
