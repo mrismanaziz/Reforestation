@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
