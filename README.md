@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
