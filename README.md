@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Why are fish so smart? Because they live in schools!
