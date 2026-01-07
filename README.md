@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
