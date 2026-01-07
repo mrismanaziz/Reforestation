@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## What do you call two guys hanging out by your window? Kurt & Rod.
