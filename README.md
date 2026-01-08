@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## I've got a joke about vegetables for you... but it's a bit corny.
