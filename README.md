@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## I couldn't get a reservation at the library. They were completely booked.
