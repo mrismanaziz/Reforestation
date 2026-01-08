@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## Why do choirs keep buckets handy? So they can carry their tune
