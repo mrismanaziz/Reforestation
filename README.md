@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
