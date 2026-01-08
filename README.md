@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## Which side of the chicken has more feathers? The outside.
