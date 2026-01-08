@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## How do you find Will Smith in the snow?  Look for fresh prints.
