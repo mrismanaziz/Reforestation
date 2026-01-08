@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## I decided to sell my Hoover… well it was just collecting dust.
