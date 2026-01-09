@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## Why can't a bicycle stand on its own? It's two-tired.
