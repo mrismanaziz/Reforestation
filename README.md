@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## What do you call two guys hanging out by your window? Kurt & Rod.
