@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## Have you heard about corduroy pillows?  They're making headlines!
