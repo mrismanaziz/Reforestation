@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
