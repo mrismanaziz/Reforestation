@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## Want to hear a joke about construction? Nah, I'm still working on it.
