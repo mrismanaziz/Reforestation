@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## Remember, the best angle to approach a problem from is the "try" angle.
