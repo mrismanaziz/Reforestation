@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
