@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## What's the best thing about elevator jokes? They work on so many levels.
