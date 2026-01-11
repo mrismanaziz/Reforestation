@@ -1,1 +1,3 @@
-## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+## What's the worst part about being a cross-eyed teacher?
+
+They can't control their pupils.
