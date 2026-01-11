@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## This is my step ladder. I never knew my real ladder.
