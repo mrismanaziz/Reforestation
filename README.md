@@ -1,1 +1,1 @@
-## What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
