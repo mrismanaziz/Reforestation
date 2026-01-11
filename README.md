@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
