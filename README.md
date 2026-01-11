@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
