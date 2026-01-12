@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## What kind of bagel can fly? A plain bagel.
