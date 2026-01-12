@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
