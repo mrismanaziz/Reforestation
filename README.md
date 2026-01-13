@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
