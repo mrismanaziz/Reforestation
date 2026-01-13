@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## I have kleptomania, but when it gets bad, I take something for it.
