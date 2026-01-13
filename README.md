@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## What did the sea say to the sand? "We have to stop meeting like this."
