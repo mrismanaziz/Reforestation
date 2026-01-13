@@ -1,1 +1,1 @@
-## What did the sea say to the sand? "We have to stop meeting like this."
+## What’s E.T. short for? He’s only got little legs.
