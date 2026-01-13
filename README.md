@@ -1,1 +1,1 @@
-## What do you call an old snowman? Water.
+## What do you call a bear with no teeth? A gummy bear!
