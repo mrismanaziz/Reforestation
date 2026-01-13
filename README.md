@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
