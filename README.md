@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## What do you call a fat psychic? A four-chin teller.
