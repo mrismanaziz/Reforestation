@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Where did Captain Hook get his hook? From a second hand store.
