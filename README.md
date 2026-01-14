@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
