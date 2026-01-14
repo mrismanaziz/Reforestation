@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
