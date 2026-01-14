@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
