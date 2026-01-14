@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## When do doctors get angry? When they run out of patients.
