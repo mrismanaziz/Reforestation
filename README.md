@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## How do you make holy water? You boil the hell out of it.
