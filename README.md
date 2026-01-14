@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## I have kleptomania, but when it gets bad, I take something for it.
