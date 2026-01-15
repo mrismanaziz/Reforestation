@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
