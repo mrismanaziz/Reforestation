@@ -1,1 +1,1 @@
-## What do you call a guy lying on your doorstep? Matt.
+## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
