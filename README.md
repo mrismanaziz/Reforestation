@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
