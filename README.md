@@ -1,1 +1,1 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
