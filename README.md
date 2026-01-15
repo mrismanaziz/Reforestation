@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
