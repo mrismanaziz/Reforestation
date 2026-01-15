@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## What kind of tree fits in your hand? A palm tree!
