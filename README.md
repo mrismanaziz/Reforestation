@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## Why do birds fly south for the winter? Because it's too far to walk.
