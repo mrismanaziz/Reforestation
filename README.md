@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
