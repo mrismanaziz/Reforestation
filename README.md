@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Our wedding was so beautiful, even the cake was in tiers.
