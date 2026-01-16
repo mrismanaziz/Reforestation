@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## What has three letters and starts with gas? A Car.
