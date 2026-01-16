@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-
-Squash.
+## I won an argument with a weather forecaster once. His logic was cloudy...
