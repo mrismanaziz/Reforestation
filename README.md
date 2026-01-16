@@ -1,1 +1,3 @@
-## What do you call a pig that knows karate? A pork chop!
+## What was the pumpkin’s favorite sport?
+
+Squash.
