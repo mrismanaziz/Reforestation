@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
