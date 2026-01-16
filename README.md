@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
