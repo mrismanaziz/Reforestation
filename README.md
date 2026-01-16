@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
