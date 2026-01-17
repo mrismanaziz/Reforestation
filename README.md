@@ -1,2 +1,3 @@
-## Q: What did the spaghetti say to the other spaghetti?
-A: Pasta la vista, baby!
+## Why do pumpkins sit on people’s porches?
+
+They have no hands to knock on the door.
