@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## People are making apocalypse jokes like there’s no tomorrow.
