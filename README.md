@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-BREATH!!
+## How was the snow globe feeling after the storm? A little shaken.
