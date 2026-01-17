@@ -1,1 +1,2 @@
-## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
+## Why don't you find hippopotamuses hiding in trees?
+They're really good at it.
