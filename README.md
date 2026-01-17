@@ -1,1 +1,2 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## Q: What did the spaghetti say to the other spaghetti?
+A: Pasta la vista, baby!
