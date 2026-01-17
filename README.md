@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## What's black and white and read all over? The newspaper.
