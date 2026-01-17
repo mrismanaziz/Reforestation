@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## Have you ever seen fruit preserves being made? It's jarring.
