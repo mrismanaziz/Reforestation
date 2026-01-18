@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
