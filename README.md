@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## I have kleptomania, but when it gets bad, I take something for it.
