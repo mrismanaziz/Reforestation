@@ -1,1 +1,1 @@
-## I used to work for an origami company but they folded.
+## How come a man driving a train got struck by lightning? He was a good conductor.
