@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Why do pirates not know the alphabet? They always get stuck at "C".
