@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## I used to be addicted to soap, but I'm clean now.
