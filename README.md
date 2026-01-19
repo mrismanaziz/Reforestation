@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
