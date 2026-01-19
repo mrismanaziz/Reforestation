@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## What kind of dinosaur loves to sleep? A stega-snore-us.
