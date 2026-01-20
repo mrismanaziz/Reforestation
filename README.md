@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## Why don't sharks eat clowns?  Because they taste funny.
