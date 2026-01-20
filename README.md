@@ -1,1 +1,1 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## What do you call two guys hanging out by your window? Kurt & Rod.
