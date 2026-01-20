@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
