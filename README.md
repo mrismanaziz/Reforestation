@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## How come the stadium got hot after the game? Because all of the fans left.
