@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## How do you find Will Smith in the snow?  Look for fresh prints.
