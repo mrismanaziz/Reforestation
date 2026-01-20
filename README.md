@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
