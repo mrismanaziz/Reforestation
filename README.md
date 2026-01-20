@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## What do you call a dad that has fallen through the ice? A Popsicle.
