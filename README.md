@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## Have you heard about corduroy pillows?  They're making headlines!
