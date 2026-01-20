@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
