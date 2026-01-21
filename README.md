@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## Where do young cows eat lunch? In the calf-ateria.
