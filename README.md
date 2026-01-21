@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## My son is studying to be a surgeon, I just hope he makes the cut.
