@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
