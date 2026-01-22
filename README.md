@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
