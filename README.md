@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## Why did the feline fail the lie detector test? Because he be lion.
