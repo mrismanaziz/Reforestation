@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
