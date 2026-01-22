@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
