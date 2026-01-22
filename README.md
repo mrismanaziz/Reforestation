@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
