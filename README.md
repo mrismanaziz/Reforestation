@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## Why did the scarecrow win an award? Because he was outstanding in his field.
