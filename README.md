@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
