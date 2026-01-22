@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## What do you call two guys hanging out by your window? Kurt & Rod.
