@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Two silk worms had a race. They ended up in a tie.
