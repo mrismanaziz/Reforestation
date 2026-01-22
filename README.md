@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
