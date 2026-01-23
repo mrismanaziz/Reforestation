@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## I used to hate facial hair, but then it grew on me.
