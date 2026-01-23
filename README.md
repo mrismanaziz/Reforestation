@@ -1,1 +1,1 @@
-## I once lost a banana at court but then I appealed. 
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
