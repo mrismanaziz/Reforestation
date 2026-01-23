@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
