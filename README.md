@@ -1,1 +1,3 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## Why do pumpkins sit on people’s porches?
+
+They have no hands to knock on the door.
