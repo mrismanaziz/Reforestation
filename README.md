@@ -1,1 +1,1 @@
-## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
