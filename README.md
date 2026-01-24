@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
