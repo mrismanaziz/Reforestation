@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-
-They have no hands to knock on the door.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
