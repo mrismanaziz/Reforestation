@@ -1,1 +1,1 @@
-## I used to work for an origami company but they folded.
+## Where do young cows eat lunch? In the calf-ateria.
