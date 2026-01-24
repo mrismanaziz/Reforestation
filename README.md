@@ -1,1 +1,1 @@
-## What do you call a pig with three eyes? Piiig
+## Why don't sharks eat clowns?  Because they taste funny.
