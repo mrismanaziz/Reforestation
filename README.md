@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
