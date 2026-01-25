@@ -1,1 +1,2 @@
-## How does the moon cut his hair? Eclipse it.
+## What is the best way to carve?
+Whittle by whittle.
