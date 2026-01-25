@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## How does the moon cut his hair? Eclipse it.
