@@ -1,1 +1,3 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## What is the difference between ignorance and apathy?
+
+I don't know and I don't care.
