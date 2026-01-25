@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## Where do rabbits go after they get married? On a bunny-moon.
