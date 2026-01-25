@@ -1,1 +1,1 @@
-## "Dad, do you think it's going to snow this winter?" "I dont know, its all up in the air"
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
