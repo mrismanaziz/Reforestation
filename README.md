@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
