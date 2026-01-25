@@ -1,1 +1,3 @@
-## The best time on a clock is 6:30--hands down.
+## Never Trust Someone With Graph Paper...
+
+They're always plotting something.
