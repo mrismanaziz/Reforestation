@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## How does a French skeleton say hello? Bone-jour.
