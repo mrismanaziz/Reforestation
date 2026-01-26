@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## I gave all my dead batteries away today, free of charge.
