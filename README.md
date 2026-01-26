@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## I ate a clock yesterday. It was so time consuming.
