@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## What did the sea say to the sand? "We have to stop meeting like this."
