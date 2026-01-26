@@ -1,1 +1,1 @@
-## My first time using an elevator was an uplifting experience. The second time let me down.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
