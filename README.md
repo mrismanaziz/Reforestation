@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
