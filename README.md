@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## I gave all my dead batteries away today, free of charge.
