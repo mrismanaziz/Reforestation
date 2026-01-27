@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## When does a joke become a dad joke? When it becomes apparent.
