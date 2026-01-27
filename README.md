@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## Two peanuts were walking down the street. One was a salted
