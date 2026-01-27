@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## When is a door not a door? When it's ajar.
