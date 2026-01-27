@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## Our wedding was so beautiful, even the cake was in tiers.
