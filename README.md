@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
