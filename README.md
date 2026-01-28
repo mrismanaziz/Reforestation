@@ -1,1 +1,1 @@
-## Did you hear about the bread factory burning down? They say the business is toast.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
