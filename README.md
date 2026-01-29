@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## Why are skeletons so calm? Because nothing gets under their skin.
