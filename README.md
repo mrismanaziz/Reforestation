@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
