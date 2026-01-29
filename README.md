@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
