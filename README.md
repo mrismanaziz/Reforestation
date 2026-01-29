@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## You know that cemetery up the road? People are dying to get in there.
