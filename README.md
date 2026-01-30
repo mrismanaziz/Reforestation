@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## What did the grape do when he got stepped on? He let out a little wine.
