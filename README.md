@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## What did the left eye say to the right eye? Between us, something smells!
