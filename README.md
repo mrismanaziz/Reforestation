@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
