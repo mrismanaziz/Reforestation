@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
