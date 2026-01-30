@@ -1,1 +1,1 @@
-## What do you call two barracuda fish?  A Pairacuda!
+## Why do mathematicians hate the U.S.? Because it's indivisible.
