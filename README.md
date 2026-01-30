@@ -1,1 +1,1 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
