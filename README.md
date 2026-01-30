@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
