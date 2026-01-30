@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## How come the stadium got hot after the game? Because all of the fans left.
