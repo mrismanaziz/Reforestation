@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## What do you call two barracuda fish?  A Pairacuda!
