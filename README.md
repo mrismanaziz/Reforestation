@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## Shout out to my grandma, that's the only way she can hear.
