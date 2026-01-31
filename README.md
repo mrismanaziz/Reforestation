@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
