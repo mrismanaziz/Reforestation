@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
