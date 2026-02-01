@@ -1,1 +1,2 @@
-## Did you know that protons have mass? I didn't even know they were catholic.
+## Why don't you find hippopotamuses hiding in trees?
+They're really good at it.
