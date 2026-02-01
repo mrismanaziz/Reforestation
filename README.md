@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## My wife said I was immature. So I told her to get out of my fort.
