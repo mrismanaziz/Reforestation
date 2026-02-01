@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
