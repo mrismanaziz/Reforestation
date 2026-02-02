@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
