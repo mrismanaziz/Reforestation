@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
