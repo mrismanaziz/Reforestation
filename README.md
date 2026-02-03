@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
