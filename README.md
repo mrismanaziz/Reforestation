@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## What happens to a frog's car when it breaks down? It gets toad.
