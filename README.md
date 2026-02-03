@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
