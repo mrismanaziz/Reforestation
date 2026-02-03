@@ -1,1 +1,1 @@
-## What do you call cheese by itself? Provolone.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
