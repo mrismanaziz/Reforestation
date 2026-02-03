@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
