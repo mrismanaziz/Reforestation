@@ -1,1 +1,2 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+
