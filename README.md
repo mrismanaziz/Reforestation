@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
