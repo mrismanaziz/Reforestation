@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
