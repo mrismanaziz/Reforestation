@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
