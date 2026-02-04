@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
