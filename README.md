@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
