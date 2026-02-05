@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
