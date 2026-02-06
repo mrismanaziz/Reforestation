@@ -1,1 +1,1 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
