@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## What did the ocean say to the shore? Nothing, it just waved.
