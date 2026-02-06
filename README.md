@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## What did the beaver say to the tree? It's been nice gnawing you.
