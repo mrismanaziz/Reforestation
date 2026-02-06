@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## What concert costs only 45 cents? 50 cent featuring Nickelback.
