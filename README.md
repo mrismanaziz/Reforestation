@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## A cannibal is someone who is fed up with people.
