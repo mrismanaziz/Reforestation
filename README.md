@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-
-Squash.
+## *Reversing the car* "Ah, this takes me back"
