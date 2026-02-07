@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
