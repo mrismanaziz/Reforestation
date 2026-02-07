@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## What do you call a cow with two legs? Lean beef.
