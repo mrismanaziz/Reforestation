@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## I'll tell you what often gets over looked... garden fences.
