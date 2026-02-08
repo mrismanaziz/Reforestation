@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Two peanuts were walking down the street. One was a salted
