@@ -1,1 +1,1 @@
-## What do you do on a remote island? Try and find the TV island it belongs to.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
