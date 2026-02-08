@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## Why do cows not have toes? They lactose!
