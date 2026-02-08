@@ -1,1 +1,1 @@
-## What did the pirate say on his 80th birthday? Aye Matey!
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
