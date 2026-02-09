@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
