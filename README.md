@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## Why do we tell actors to “break a leg?” Because every play has a cast.
