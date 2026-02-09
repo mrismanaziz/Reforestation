@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
