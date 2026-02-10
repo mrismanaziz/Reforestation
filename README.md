@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## Have you heard about corduroy pillows?  They're making headlines!
