@@ -1,1 +1,2 @@
-## I don't trust sushi, there's something fishy about it.
+## Why did the cookie cry?
+Because his mother was a wafer so long
