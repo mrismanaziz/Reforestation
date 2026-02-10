@@ -1,1 +1,1 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
