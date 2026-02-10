@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
