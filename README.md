@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What has ears but cannot hear? A field of corn.
