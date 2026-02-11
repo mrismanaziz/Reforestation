@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-
-I don't know and I don't care.
+## I boiled a funny bone last night and had a laughing stock
