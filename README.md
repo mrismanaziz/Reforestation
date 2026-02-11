@@ -1,1 +1,3 @@
-## What's red and bad for your teeth? A Brick.
+## What is the difference between ignorance and apathy?
+
+I don't know and I don't care.
