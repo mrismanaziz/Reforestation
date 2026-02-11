@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-Because his mother was a wafer so long
+## My New Years resolution is to stop leaving things so late.
