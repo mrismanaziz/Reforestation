@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## What don't watermelons get married? Because they cantaloupe.
