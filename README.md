@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
