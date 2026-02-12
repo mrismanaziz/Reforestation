@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-Because his mother was a wafer so long
+## How many South Americans does it take to change a lightbulb? A Brazilian
