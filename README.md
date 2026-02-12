@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## Why can't a bicycle stand on its own? It's two-tired.
