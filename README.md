@@ -1,1 +1,3 @@
-## Velcro… What a rip-off.
+## Never Trust Someone With Graph Paper...
+
+They're always plotting something.
