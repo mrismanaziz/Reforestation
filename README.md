@@ -1,1 +1,2 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## Why did Mozart kill all his chickens?
+Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
