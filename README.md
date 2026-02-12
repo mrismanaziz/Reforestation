@@ -1,1 +1,2 @@
-## I used to be addicted to soap, but I'm clean now.
+## Why did the cookie cry?
+Because his mother was a wafer so long
