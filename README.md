@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
