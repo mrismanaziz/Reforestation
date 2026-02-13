@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
