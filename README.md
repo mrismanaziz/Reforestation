@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## What do you call a duck that gets all A's? A wise quacker.
