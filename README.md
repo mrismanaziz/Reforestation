@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## A termite walks into a bar and asks “Is the bar tender here?”
