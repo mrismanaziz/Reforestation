@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## What do you do when your bunny gets wet? You get your hare dryer.
