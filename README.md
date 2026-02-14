@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## Why did the sentence fail the driving test? It never came to a full stop.
