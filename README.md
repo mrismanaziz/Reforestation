@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Why did the coffee file a police report? It got mugged.
