@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## Why do bees have sticky hair? Because they use honey combs!
