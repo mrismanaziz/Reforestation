@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## What do vegetarian zombies eat? Grrrrrainnnnnssss.
