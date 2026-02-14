@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
