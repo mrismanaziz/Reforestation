@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
