@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## I decided to sell my Hoover… well it was just collecting dust.
