@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
