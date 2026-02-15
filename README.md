@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
