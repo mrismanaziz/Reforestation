@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## Why is the ocean always blue? Because the shore never waves back.
