@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-BREATH!!
+## What has ears but cannot hear? A field of corn.
