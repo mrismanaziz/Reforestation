@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
