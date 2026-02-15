@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## Want to hear a joke about construction? Nah, I'm still working on it.
