@@ -1,1 +1,3 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## What's the worst part about being a cross-eyed teacher?
+
+They can't control their pupils.
