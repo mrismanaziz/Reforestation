@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## I couldn't get a reservation at the library. They were completely booked.
