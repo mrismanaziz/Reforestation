@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
