@@ -1,1 +1,1 @@
-## What do you call an old snowman? Water.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
