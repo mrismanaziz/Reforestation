@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## I'll tell you what often gets over looked... garden fences.
