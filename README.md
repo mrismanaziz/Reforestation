@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## I remember when I was a kid, I opened my fridge and noticed one of my vegetables were crying. I guess I have some emotional cabbage.
