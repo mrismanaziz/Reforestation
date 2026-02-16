@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## Why don't sharks eat clowns?  Because they taste funny.
