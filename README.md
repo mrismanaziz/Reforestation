@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
