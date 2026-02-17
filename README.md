@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
