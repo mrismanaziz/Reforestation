@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## I tried to write a chemistry joke, but could never get a reaction.
