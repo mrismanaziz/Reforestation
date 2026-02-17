@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## What did the shy pebble wish for? That she was a little boulder.
