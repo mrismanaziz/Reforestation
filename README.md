@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## I'm glad I know sign language, it's pretty handy.
