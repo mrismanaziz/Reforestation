@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-
-They have no hands to knock on the door.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
