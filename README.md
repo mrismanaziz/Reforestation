@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
