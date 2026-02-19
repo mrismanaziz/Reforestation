@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## How come a man driving a train got struck by lightning? He was a good conductor.
