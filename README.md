@@ -1,1 +1,2 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Q: What did the spaghetti say to the other spaghetti?
+A: Pasta la vista, baby!
