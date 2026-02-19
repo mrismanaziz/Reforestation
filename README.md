@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Breaking news! Energizer Bunny arrested – charged with battery.
