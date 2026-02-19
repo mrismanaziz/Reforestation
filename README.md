@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Who did the wizard marry? His ghoul-friend
