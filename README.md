@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
