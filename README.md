@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## Why do we tell actors to “break a leg?” Because every play has a cast.
