@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
