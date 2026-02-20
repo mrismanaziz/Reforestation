@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
