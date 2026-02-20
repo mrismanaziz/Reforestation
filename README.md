@@ -1,1 +1,3 @@
-## Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
+## What is the difference between ignorance and apathy?
+
+I don't know and I don't care.
