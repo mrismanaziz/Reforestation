@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
