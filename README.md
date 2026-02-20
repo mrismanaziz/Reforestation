@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
