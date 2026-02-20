@@ -1,1 +1,1 @@
-## Someone asked me to name two structures that hold water. I said "Well dam"
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
