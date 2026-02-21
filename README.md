@@ -1,1 +1,3 @@
-## What did the big flower say to the littler flower? Hi, bud!
+## What is the difference between ignorance and apathy?
+
+I don't know and I don't care.
