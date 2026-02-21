@@ -1,5 +1,1 @@
-## A panda walks into a bar and says to the bartender “I’ll have a Scotch and . . . . . . . . . . . . . . Coke thank you”. 
-
-“Sure thing” the bartender replies and asks “but what’s with the big pause?” 
-
-The panda holds up his hands and says “I was born with them”
+## I remember when I was a kid, I opened my fridge and noticed one of my vegetables were crying. I guess I have some emotional cabbage.
