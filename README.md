@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
