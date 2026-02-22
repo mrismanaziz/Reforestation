@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
