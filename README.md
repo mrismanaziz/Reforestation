@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
