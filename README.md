@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## What do you call a dad that has fallen through the ice? A Popsicle.
