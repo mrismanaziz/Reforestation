@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
