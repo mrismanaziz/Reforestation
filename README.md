@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
