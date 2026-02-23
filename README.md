@@ -1,3 +1,7 @@
-## Why do pumpkins sit on people’s porches?
+## Wife: Honey I’m pregnant.
 
-They have no hands to knock on the door.
+Me: Well…. what do we do now?
+
+Wife: Well, I guess we should go to a baby doctor.
+
+Me: Hm.. I think I’d be a lot more comfortable going to an adult doctor.
