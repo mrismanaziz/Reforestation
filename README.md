@@ -1,2 +1,1 @@
-## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
-"Pop," goes the weasel.
+## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
