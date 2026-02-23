@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## Why do cows wear bells? Because their horns don't work.
