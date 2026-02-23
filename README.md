@@ -1,7 +1,1 @@
-## Wife: Honey I’m pregnant.
-
-Me: Well…. what do we do now?
-
-Wife: Well, I guess we should go to a baby doctor.
-
-Me: Hm.. I think I’d be a lot more comfortable going to an adult doctor.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
