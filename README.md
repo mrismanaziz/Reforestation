@@ -1,1 +1,1 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
