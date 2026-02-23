@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
