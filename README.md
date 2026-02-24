@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Where do you learn to make banana splits? At sundae school.
