@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
