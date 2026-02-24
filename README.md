@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
