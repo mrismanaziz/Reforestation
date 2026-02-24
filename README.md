@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## Why is the ocean always blue? Because the shore never waves back.
