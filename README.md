@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Why do crabs never give to charity? Because they’re shellfish.
