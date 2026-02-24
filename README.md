@@ -1,1 +1,1 @@
-## Where do fish keep their money? In the riverbank
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
