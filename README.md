@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## What's orange and sounds like a parrot? A Carrot.
