@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
