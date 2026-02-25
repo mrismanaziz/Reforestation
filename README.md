@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## I just got fired from a florist, apparently I took too many leaves.
