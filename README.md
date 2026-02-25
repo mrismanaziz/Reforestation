@@ -1,1 +1,2 @@
-## What do you call a criminal going down the stairs? Condescending
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+
