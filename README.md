@@ -1,1 +1,1 @@
-## What do you call a fake noodle? An impasta.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
