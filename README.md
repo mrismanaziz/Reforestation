@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## What do you call an alligator in a vest? An in-vest-igator!
