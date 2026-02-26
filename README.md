@@ -1,1 +1,1 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## Where does Napoleon keep his armies? In his sleevies.
