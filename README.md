@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
