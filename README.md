@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
