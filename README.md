@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
