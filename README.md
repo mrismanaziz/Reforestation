@@ -1,1 +1,1 @@
-## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
+## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
