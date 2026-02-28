@@ -1,1 +1,1 @@
-## What do birds give out on Halloween? Tweets.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
