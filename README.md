@@ -1,1 +1,3 @@
-## My cat was just sick on the carpet, I don’t think it’s feline well.
+## What is the difference between ignorance and apathy?
+
+I don't know and I don't care.
