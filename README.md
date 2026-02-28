@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-
-I don't know and I don't care.
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
