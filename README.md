@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
