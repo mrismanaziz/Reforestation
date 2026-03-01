@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
