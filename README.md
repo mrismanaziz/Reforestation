@@ -1,1 +1,1 @@
-## What do you call a girl between two posts? Annette.
+## Why don't sharks eat clowns?  Because they taste funny.
