@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## What's the best thing about elevator jokes? They work on so many levels.
