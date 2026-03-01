@@ -1,1 +1,1 @@
-## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
