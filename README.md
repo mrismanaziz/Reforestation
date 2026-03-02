@@ -1,1 +1,1 @@
-## I used to think I was indecisive, but now I'm not sure.
+## What do you call a boomerang that won't come back? A stick.
