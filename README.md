@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
