@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
