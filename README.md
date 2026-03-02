@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
