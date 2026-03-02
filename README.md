@@ -1,2 +1,1 @@
-## Why did Mozart kill all his chickens?
-Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
