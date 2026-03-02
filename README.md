@@ -1,1 +1,2 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## Why did Mozart kill all his chickens?
+Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
