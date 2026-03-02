@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
