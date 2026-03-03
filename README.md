@@ -1,1 +1,1 @@
-## What do birds give out on Halloween? Tweets.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
