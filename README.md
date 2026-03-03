@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## Have you heard about corduroy pillows?  They're making headlines!
