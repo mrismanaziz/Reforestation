@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## What's a ninja's favorite type of shoes? Sneakers!
