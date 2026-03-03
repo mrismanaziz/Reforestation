@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
