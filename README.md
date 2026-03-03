@@ -1,1 +1,1 @@
-## A man was caught stealing in a supermarket today while balanced on the shoulders of a couple of vampires. He was charged with shoplifting on two counts. 
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
