@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## A book just fell on my head. I only have my shelf to blame.
