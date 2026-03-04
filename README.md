@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## What does a clock do when it's hungry? It goes back four seconds!
