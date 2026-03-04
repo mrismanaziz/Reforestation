@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
