@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
