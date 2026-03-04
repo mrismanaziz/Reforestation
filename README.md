@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
