@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
