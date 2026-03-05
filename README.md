@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
