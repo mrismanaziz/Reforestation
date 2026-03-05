@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## What do you call a droid that takes the long way around? R2 detour.
