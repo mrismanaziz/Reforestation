@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
