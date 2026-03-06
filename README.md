@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## What do you call a dad that has fallen through the ice? A Popsicle.
