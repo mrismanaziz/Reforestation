@@ -1,1 +1,1 @@
-## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
