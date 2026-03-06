@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
