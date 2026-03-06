@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
