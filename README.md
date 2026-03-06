@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## What's brown and sticky? A stick.
