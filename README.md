@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## Why did the sentence fail the driving test? It never came to a full stop.
