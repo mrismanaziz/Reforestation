@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
