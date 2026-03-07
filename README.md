@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
