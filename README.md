@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
