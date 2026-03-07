@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## Did you hear about the bread factory burning down? They say the business is toast.
