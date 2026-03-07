@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
