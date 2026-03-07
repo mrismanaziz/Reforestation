@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
