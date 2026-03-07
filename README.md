@@ -1,1 +1,2 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## "Dad, I'm cold."
+"Go stand in the corner, I hear it's 90 degrees."
