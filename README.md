@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
