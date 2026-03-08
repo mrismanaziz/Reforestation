@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
