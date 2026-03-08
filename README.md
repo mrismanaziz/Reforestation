@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## What did the ocean say to the shore? Nothing, it just waved.
