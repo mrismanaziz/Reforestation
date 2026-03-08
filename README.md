@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
