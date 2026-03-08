@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
