@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Do you know where you can get chicken broth in bulk? The stock market.
