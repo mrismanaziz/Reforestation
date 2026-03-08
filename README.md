@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
