@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## Me and my mates are in a band called Duvet. We're a cover band.
