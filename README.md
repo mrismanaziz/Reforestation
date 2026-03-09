@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-Sign Language
+## What do computers and air conditioners have in common? They both become useless when you open windows.
