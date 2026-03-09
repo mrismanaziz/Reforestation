@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## Why didn’t the skeleton cross the road? Because he had no guts.
