@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## Why do fish live in salt water? Because pepper makes them sneeze!
