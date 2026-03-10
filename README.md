@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
