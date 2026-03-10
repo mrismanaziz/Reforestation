@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
