@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
