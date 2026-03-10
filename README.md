@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## What kind of dinosaur loves to sleep? A stega-snore-us.
