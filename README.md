@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
