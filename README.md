@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## Why did the kid throw the clock out the window? He wanted to see time fly!
