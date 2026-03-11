@@ -1,1 +1,1 @@
-## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
