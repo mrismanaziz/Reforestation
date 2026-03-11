@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
