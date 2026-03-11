@@ -1,1 +1,1 @@
-## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
