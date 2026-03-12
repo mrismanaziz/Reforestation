@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
