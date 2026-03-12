@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
