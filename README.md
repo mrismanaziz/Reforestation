@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## Where did Captain Hook get his hook? From a second hand store.
