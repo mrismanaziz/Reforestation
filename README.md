@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
