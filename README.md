@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
