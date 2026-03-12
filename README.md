@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## What did the mountain climber name his son? Cliff.
