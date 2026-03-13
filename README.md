@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
