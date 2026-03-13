@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
