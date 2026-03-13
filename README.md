@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
