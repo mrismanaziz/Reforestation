@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
