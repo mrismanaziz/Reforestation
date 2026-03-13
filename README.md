@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Who did the wizard marry? His ghoul-friend
