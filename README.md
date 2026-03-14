@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## What do you call a boomerang that won't come back? A stick.
