@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## Have you heard about the owl sanctuary job opening? It’s all night shifts but they’re all a hoot over there.
