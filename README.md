@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## Some people eat light bulbs. They say it's a nice light snack.
