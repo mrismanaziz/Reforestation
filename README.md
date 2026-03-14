@@ -1,1 +1,1 @@
-## I think circles are pointless.
+## Toasters were the first form of pop-up notifications.
