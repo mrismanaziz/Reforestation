@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
