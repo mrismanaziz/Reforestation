@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
