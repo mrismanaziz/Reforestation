@@ -1,1 +1,1 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## What do you call a boomerang that won't come back? A stick.
