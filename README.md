@@ -1,1 +1,1 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## What did the ocean say to the shore? Nothing, it just waved.
