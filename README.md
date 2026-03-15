@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
