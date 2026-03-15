@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## Why are fish easy to weigh? Because they have their own scales.
