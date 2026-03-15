@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## Why was the robot angry? Because someone kept pressing his buttons!
