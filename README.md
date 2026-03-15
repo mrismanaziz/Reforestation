@@ -1,1 +1,1 @@
-## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
+## How many South Americans does it take to change a lightbulb? A Brazilian
