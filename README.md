@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
