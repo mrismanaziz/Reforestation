@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## Have you heard about corduroy pillows?  They're making headlines!
