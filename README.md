@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## What do you get when you cross a pig and a pineapple? A porky pine
