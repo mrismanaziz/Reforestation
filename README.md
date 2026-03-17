@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
