@@ -1,1 +1,1 @@
-## Which is the fastest growing city in the world? Dublin'
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
