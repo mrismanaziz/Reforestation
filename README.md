@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## Why did the melons plan a big wedding? Because they cantaloupe!
