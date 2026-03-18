@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## New atoms frequently lose electrons when they fail to keep an ion them.
