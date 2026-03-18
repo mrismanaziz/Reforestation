@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
