@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
