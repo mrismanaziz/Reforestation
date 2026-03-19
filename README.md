@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## Why was the robot angry? Because someone kept pressing his buttons!
