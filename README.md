@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Is the pool safe for diving? It deep ends.
