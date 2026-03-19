@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## A termite walks into a bar and asks “Is the bar tender here?”
