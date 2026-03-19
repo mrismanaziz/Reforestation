@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
