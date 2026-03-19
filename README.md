@@ -1,1 +1,1 @@
-## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
