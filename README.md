@@ -1,2 +1,1 @@
-## Where do cats write notes?
-Scratch Paper!
+## What do you call cheese by itself? Provolone.
