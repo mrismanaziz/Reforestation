@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## Never take advice from electrons. They are always negative.
