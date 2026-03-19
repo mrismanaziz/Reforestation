@@ -1,1 +1,2 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## Where do cats write notes?
+Scratch Paper!
