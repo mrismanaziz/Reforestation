@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
