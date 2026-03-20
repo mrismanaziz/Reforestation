@@ -1,1 +1,2 @@
-## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
+## I finally bought the limited edition Thesaurus that I've always wanted. When I opened it, all the pages were blank.
+I have no words to describe how angry I am.
