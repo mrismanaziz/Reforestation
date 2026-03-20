@@ -1,1 +1,2 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+"Pop," goes the weasel.
