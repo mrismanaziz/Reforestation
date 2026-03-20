@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
