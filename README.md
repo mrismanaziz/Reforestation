@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
