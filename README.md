@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## My wife said I was immature. So I told her to get out of my fort.
