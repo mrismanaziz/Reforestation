@@ -1,2 +1,1 @@
-## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
-"Pop," goes the weasel.
+## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
