@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## This morning I was wondering where the sun was, but then it dawned on me.
