@@ -1,1 +1,1 @@
-## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
