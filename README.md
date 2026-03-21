@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## Why is it so windy inside an arena? All those fans.
