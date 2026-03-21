@@ -1,1 +1,1 @@
-## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
+## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
