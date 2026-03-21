@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
