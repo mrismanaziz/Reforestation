@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Why didn’t the skeleton cross the road? Because he had no guts.
