@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
