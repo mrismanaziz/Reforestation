@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
