@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## How many tickles does it take to tickle an octopus? Ten-tickles!
