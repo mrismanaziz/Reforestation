@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## Why is the ocean always blue? Because the shore never waves back.
