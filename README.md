@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
