@@ -1,1 +1,2 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## What is the least spoken language in the world?
+Sign Language
