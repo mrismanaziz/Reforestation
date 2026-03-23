@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
