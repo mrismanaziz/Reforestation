@@ -1,1 +1,1 @@
-## Why does Han Solo like gum? It's chewy!
+## Some people eat light bulbs. They say it's a nice light snack.
