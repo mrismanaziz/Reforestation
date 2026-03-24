@@ -1,1 +1,1 @@
-## Today, my son asked "Can I have a book mark?" and I burst into tears. 11 years old and he still doesn't know my name is Brian.
+## How come a man driving a train got struck by lightning? He was a good conductor.
