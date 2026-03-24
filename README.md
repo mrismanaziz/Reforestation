@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## Why did the tree go to the dentist? It needed a root canal.
