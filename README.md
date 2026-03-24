@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
