@@ -1,1 +1,1 @@
-## My first time using an elevator was an uplifting experience. The second time let me down.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
