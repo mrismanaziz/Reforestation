@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## Where did you learn to make ice cream? Sunday school.
