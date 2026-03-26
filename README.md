@@ -1,1 +1,1 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## How come a man driving a train got struck by lightning? He was a good conductor.
