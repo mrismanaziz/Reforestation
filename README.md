@@ -1,1 +1,1 @@
-## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
