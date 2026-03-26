@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
