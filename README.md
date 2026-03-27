@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
