@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## What creature is smarter than a talking parrot? A spelling bee.
