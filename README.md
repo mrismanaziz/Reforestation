@@ -1,1 +1,2 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## What is the best way to carve?
+Whittle by whittle.
