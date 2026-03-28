@@ -1,1 +1,1 @@
-## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
