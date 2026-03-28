@@ -1,2 +1,1 @@
-## What is the best way to carve?
-Whittle by whittle.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
