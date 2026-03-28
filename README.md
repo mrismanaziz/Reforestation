@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
