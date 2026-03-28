@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## What do you call an eagle who can play the piano? Talonted!
