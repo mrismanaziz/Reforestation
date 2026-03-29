@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
