@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## What do you call a nervous javelin thrower? Shakespeare.
