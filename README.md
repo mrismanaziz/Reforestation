@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
