@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
