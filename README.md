@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-
-They can't control their pupils.
+## I don't trust stairs. They're always up to something.
