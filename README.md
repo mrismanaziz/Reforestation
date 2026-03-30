@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
