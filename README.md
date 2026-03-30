@@ -1,1 +1,1 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
