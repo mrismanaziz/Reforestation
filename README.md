@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## What did one wall say to the other wall? I'll meet you at the corner!
