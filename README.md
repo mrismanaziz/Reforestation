@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
