@@ -1,1 +1,1 @@
-## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
+## Recent survey revealed 6 out of 7 dwarf's aren't happy.
