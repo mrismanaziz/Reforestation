@@ -1,1 +1,3 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## What is the difference between ignorance and apathy?
+
+I don't know and I don't care.
