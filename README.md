@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
