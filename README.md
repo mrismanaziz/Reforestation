@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## To be Frank, I'd have to change my name.
