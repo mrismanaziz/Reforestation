@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## Whenever the cashier at the grocery store asks my dad if he would like the milk in a bag he replies, ‘No, just leave it in the carton!’
