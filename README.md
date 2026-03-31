@@ -1,1 +1,1 @@
-## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
