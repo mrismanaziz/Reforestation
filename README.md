@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## It takes guts to be an organ donor.
