@@ -1,1 +1,2 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## What did the hat say to the scarf?
+You can hang around. I'll just go on ahead.
