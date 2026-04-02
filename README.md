@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## How come the stadium got hot after the game? Because all of the fans left.
