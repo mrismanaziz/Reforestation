@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## What kind of bagel can fly? A plain bagel.
