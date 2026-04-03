@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
