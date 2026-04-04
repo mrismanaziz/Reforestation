@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## What did the sea say to the sand? "We have to stop meeting like this."
