@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
