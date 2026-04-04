@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## Man, I really love my furniture... me and my recliner go way back.
