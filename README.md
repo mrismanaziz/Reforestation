@@ -1,1 +1,3 @@
-## It's difficult to say what my wife does, she sells sea shells by the sea shore.
+## Why do pumpkins sit on people’s porches?
+
+They have no hands to knock on the door.
