@@ -1,1 +1,1 @@
-## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
+## Geology rocks, but Geography is where it's at!
