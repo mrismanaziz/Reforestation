@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
