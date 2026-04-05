@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-A: Pasta la vista, baby!
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
