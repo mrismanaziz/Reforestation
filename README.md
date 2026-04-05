@@ -1,1 +1,2 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## Q: What did the spaghetti say to the other spaghetti?
+A: Pasta la vista, baby!
