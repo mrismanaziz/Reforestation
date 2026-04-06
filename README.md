@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
