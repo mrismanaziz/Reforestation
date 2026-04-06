@@ -1,1 +1,1 @@
-## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+## So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
