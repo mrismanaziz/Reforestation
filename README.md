@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
