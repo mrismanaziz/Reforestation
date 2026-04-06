@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
