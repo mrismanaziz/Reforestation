@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## Why was Pavlov's beard so soft?  Because he conditioned it.
