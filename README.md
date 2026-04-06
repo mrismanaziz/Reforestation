@@ -1,1 +1,2 @@
-## Why does Han Solo like gum? It's chewy!
+## What's large, grey, and doesn't matter?
+An irrelephant.
