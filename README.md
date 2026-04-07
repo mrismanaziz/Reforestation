@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## What did the ocean say to the shore? Nothing, it just waved.
