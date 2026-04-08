@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## What’s E.T. short for? He’s only got little legs.
