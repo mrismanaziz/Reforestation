@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
