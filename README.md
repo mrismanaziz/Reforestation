@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
