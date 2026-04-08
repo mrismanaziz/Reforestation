@@ -1,1 +1,1 @@
-## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
