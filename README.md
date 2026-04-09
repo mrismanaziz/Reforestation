@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-Because his mother was a wafer so long
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
