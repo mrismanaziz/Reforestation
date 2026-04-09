@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## I’m only familiar with 25 letters in the English language. I don’t know why.
