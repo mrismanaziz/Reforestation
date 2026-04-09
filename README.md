@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
