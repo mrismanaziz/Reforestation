@@ -1,1 +1,2 @@
-## I won an argument with a weather forecaster once. His logic was cloudy...
+## Why did the cookie cry?
+Because his mother was a wafer so long
