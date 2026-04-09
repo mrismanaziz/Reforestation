@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
