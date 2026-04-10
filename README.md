@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
