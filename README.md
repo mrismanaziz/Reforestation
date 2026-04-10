@@ -1,1 +1,2 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## Why don't you find hippopotamuses hiding in trees?
+They're really good at it.
