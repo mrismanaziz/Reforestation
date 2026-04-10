@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
