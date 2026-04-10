@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-They're really good at it.
+## I've started telling everyone about the benefits of eating dried grapes. It's all about raisin awareness.
