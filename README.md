@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
