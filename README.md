@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Why do choirs keep buckets handy? So they can carry their tune
