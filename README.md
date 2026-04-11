@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## When is a door not a door? When it's ajar.
