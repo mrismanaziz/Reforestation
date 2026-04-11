@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## How do you fix a broken pizza? With tomato paste.
