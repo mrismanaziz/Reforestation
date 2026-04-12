@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
