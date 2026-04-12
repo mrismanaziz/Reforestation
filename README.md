@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## Why do cows not have toes? They lactose!
