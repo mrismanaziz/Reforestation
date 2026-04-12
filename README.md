@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
