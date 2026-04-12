@@ -1,1 +1,1 @@
-## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+## People who don't eat gluten are really going against the grain.
