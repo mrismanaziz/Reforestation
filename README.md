@@ -1,1 +1,1 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
