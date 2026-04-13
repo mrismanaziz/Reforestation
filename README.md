@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-Because his mother was a wafer so long
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
