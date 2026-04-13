@@ -1,1 +1,2 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+
