@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-But take a look at me now.
+## Man, I really love my furniture... me and my recliner go way back.
