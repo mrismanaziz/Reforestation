@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
