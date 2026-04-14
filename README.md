@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Dad, can you put my shoes on? I don't think they'll fit me.
