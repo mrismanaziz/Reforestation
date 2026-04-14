@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
