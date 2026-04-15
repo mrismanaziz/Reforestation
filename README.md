@@ -1,2 +1,1 @@
-## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
-I know he means well.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
