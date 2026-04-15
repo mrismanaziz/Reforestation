@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
