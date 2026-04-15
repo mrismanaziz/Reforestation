@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
