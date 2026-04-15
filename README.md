@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## What do you call a careful wolf? Aware wolf.
