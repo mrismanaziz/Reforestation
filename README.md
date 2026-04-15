@@ -1,1 +1,1 @@
-## Whats a penguins favorite relative? Aunt Arctica.
+## How come the stadium got hot after the game? Because all of the fans left.
