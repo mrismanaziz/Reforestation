@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## What do you get when you cross a snowman with a vampire? Frostbite.
