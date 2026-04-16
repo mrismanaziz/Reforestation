@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-An irrelephant.
+## How does a scientist freshen their breath? With experi-mints!
