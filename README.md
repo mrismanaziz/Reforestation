@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
