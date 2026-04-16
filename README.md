@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
