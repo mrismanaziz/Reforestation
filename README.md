@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## What did one wall say to the other wall? I'll meet you at the corner!
