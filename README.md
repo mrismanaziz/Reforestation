@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## Don't tell secrets in corn fields. Too many ears around.
