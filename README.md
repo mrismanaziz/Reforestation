@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
