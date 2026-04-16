@@ -1,1 +1,2 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## What's large, grey, and doesn't matter?
+An irrelephant.
