@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Why didn’t the orange win the race? It ran out of juice.
