@@ -1,1 +1,1 @@
-## Why was the shirt happy to hang around the tank top? Because it was armless
+## Did you hear the joke about the wandering nun? She was a roman catholic.
