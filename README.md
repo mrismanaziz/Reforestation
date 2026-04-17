@@ -1,1 +1,1 @@
-## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
