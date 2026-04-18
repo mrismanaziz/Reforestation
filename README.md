@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
