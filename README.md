@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## Why did the melons plan a big wedding? Because they cantaloupe!
