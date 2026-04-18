@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## How come a man driving a train got struck by lightning? He was a good conductor.
