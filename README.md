@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Why didn’t the skeleton cross the road? Because he had no guts.
