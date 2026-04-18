@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## What did the ocean say to the shore? Nothing, it just waved.
