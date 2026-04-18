@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## Have you heard the story about the magic tractor? It drove down the road and turned into a field.
