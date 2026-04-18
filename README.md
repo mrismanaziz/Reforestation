@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## What does an angry pepper do? It gets jalapeño face.
