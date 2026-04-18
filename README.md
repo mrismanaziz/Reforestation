@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## I used to work for an origami company but they folded.
