@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
