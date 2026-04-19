@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
