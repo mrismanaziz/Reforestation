@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
