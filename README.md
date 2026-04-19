@@ -1,1 +1,1 @@
-## Where’s the bin? Dad: I haven’t been anywhere!
+## I went to the doctor today and he told me I had type A blood but it was a type O.
