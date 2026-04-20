@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
