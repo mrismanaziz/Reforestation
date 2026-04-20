@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## Mountains aren't just funny, they are hill areas
