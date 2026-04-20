@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## Why did the melons plan a big wedding? Because they cantaloupe!
