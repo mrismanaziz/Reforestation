@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## What do bees do after they are married? They go on a honeymoon.
