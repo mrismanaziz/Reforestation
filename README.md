@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
