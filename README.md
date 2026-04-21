@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## You know that cemetery up the road? People are dying to get in there.
