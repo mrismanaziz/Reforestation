@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## To the guy who invented zero... thanks for nothing.
