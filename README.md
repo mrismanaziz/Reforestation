@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
