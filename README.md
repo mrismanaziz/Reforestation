@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## I was wondering why the frisbee was getting bigger, then it hit me.
