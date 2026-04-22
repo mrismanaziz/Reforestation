@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## What happens to a frog's car when it breaks down? It gets toad.
