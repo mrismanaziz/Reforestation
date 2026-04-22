@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
