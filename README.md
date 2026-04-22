@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
