@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## I've got a joke about vegetables for you... but it's a bit corny.
