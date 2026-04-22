@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## What kind of award did the dentist receive? A little plaque.
