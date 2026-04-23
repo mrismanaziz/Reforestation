@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
