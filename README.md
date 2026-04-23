@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## What do you call a boy who stopped digging holes? Douglas.
