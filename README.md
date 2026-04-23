@@ -1,1 +1,1 @@
-## Have you heard of the band 1023MB? They haven't got a gig yet.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
