@@ -1,1 +1,1 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## What do you do when your bunny gets wet? You get your hare dryer.
