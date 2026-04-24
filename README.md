@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## How can you tell a vampire has a cold? They start coffin.
