@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## What did the calculator say to the student? You can count on me.
