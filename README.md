@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
