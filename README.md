@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
