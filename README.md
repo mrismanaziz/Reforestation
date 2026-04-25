@@ -1,1 +1,1 @@
-## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
