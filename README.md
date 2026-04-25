@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## Why do cows wear bells? Because their horns don't work.
