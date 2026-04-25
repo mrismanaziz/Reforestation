@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
