@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
