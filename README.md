@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Did you hear about the runner who was criticized? He just took it in stride
