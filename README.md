@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
