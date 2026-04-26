@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## What do you call a duck that gets all A's? A wise quacker.
