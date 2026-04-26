@@ -1,1 +1,1 @@
-## I'd like to start a diet, but I've got too much on my plate right now.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
