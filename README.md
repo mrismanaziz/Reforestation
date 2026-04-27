@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## What’s E.T. short for? He’s only got little legs.
