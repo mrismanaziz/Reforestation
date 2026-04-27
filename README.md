@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Why is Peter Pan always flying? Because he Neverlands.
