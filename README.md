@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## What did the shy pebble wish for? That she was a little boulder.
