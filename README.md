@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
