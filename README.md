@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## I had a dream that I was a muffler last night. I woke up exhausted!
