@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
