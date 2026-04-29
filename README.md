@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## I've got a joke about vegetables for you... but it's a bit corny.
