@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
