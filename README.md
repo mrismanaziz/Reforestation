@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
