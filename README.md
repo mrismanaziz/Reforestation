@@ -1,1 +1,1 @@
-## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
