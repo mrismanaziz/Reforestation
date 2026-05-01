@@ -1,1 +1,1 @@
-## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
+## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
