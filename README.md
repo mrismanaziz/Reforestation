@@ -1,1 +1,1 @@
-## Which is the fastest growing city in the world? Dublin'
+## Why do ducks make great detectives? They always quack the case.
