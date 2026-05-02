@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## What kind of dinosaur loves to sleep? A stega-snore-us.
