@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## My first time using an elevator was an uplifting experience. The second time let me down.
