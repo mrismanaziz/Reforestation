@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## What do you call a bear with no teeth? A gummy bear!
