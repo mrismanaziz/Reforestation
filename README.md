@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
