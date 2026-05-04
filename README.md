@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## Writing with a broken pencil is pointless.
