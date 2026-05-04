@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
