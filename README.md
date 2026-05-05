@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
