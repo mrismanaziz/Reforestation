@@ -1,1 +1,1 @@
-## What do you call a fake noodle? An impasta.
+## How does a French skeleton say hello? Bone-jour.
