@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## I thought about going on an all-almond diet. But that's just nuts.
