@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
