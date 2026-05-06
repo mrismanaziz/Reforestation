@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
