@@ -1,1 +1,1 @@
-## What do you call a girl between two posts? Annette.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
