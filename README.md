@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
