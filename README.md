@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## To be Frank, I'd have to change my name.
