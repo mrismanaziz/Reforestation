@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
