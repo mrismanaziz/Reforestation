@@ -1,1 +1,2 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+"Pop," goes the weasel.
