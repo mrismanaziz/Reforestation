@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## Where do rabbits go after they get married? On a bunny-moon.
