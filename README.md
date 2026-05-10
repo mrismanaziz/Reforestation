@@ -1,1 +1,1 @@
-## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
