@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## Don't tell secrets in corn fields. Too many ears around.
