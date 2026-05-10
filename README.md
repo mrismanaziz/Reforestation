@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## If at first you don't succeed, sky diving is not for you!
