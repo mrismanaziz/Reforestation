@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
