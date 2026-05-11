@@ -1,1 +1,1 @@
-## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
