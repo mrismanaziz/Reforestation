@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
