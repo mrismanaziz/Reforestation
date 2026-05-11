@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## Why do pirates not know the alphabet? They always get stuck at "C".
