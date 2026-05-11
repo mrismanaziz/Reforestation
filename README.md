@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
