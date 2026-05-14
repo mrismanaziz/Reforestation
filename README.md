@@ -1,1 +1,1 @@
-## ‘Put the cat out’ … ‘I didn’t realize it was on fire
+## What do you call two guys hanging out by your window? Kurt & Rod.
