@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
