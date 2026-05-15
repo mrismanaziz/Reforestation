@@ -1,1 +1,1 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## I'd like to start a diet, but I've got too much on my plate right now.
