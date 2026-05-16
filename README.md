@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## I used to be a banker, but I lost interest.
