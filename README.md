@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
