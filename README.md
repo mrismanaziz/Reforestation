@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## What do you get when you cross a snowman with a vampire? Frostbite.
