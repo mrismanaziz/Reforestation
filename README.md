@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
