@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## I thought about going on an all-almond diet. But that's just nuts.
