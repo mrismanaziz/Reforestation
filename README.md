@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## Remember, the best angle to approach a problem from is the "try" angle.
