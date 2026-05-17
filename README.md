@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## Why do crabs never give to charity? Because they’re shellfish.
