@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## I have kleptomania, but when it gets bad, I take something for it.
