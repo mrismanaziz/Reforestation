@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## What did the grape do when he got stepped on? He let out a little wine.
