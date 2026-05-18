@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## No matter how kind you are, German children are kinder.
