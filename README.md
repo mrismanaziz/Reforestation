@@ -1,1 +1,3 @@
-## What do you call a monkey in a mine field? A babooooom!
+## Why do pumpkins sit on people’s porches?
+
+They have no hands to knock on the door.
