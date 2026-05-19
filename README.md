@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-
-They have no hands to knock on the door.
+## I’m only familiar with 25 letters in the English language. I don’t know why.
