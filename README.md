@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
