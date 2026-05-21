@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
