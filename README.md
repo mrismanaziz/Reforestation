@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
