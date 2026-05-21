@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## I was in an 80's band called the prevention. We were better than the cure.
