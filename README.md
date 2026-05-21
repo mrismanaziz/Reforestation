@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Thanks for explaining the word "many" to me. It means a lot.
