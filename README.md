@@ -1,1 +1,1 @@
-## The shovel was a ground-breaking invention.
+## You know that cemetery up the road? People are dying to get in there.
