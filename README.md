@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Why are skeletons so calm? Because nothing gets under their skin.
