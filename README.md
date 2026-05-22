@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
