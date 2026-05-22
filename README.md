@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## Toasters were the first form of pop-up notifications.
