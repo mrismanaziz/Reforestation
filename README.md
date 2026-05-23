@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
