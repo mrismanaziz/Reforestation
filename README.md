@@ -1,1 +1,1 @@
-## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
