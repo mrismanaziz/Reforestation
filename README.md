@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
