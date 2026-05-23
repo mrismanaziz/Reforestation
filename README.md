@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## What did one wall say to the other wall? I'll meet you at the corner!
