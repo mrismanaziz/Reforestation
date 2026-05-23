@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
