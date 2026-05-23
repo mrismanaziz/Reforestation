@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
