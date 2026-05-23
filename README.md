@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## Ever wondered why bees hum? It's because they don't know the words.
