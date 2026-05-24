@@ -1,1 +1,1 @@
-## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
