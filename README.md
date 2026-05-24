@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Why did the coffee file a police report? It got mugged.
