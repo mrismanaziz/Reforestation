@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
