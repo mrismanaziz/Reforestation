@@ -1,1 +1,1 @@
-## Whenever the cashier at the grocery store asks my dad if he would like the milk in a bag he replies, ‘No, just leave it in the carton!’
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
