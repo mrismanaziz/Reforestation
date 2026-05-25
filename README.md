@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## What do you get when you cross a snowman with a vampire? Frostbite.
