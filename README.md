@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
