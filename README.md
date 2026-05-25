@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
