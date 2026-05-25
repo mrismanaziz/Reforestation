@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
