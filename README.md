@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## What did Yoda say when he saw himself in 4K? "HDMI"
