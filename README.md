@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
