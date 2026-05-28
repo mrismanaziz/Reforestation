@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
