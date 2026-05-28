@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-
-I don't know and I don't care.
+## What do you do when your bunny gets wet? You get your hare dryer.
