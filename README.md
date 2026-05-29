@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
