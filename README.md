@@ -1,1 +1,1 @@
-## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
