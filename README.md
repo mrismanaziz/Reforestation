@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
