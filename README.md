@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
