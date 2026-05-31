@@ -1,2 +1,1 @@
-## Cosmetic surgery used to be such a taboo subject.
-Now you can talk about Botox and nobody raises an eyebrow.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
