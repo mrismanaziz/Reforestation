@@ -1,1 +1,2 @@
-## What did the 0 say to the 8? Nice belt.
+## What is red and smells like blue paint?
+Red paint!
