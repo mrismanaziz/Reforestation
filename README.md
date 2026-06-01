@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
