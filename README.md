@@ -1,1 +1,1 @@
-## Where does Fonzie like to go for lunch? Chick-Fil-Eyyyyyyyy.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
