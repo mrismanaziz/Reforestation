@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
