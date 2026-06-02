@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
