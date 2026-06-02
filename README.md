@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
