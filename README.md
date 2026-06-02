@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
