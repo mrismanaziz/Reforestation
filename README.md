@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Why do cows not have toes? They lactose!
