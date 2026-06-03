@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## When does a joke become a dad joke? When it becomes apparent.
