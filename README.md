@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## What did the dog say to the two trees? Bark bark.
