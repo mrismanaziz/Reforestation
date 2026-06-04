@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## Why are skeletons so calm? Because nothing gets under their skin.
