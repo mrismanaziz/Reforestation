@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## Why was the picture sent to prison? It was framed.
