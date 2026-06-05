@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
