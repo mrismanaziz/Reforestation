@@ -1,1 +1,1 @@
-## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
+## How come the stadium got hot after the game? Because all of the fans left.
