@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
