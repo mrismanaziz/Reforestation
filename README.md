@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
