@@ -1,1 +1,3 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## What was the pumpkin’s favorite sport?
+
+Squash.
