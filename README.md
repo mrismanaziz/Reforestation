@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## How do you organize a space party? You planet.
