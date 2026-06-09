@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-
-They can't control their pupils.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
