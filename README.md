@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
