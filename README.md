@@ -1,1 +1,3 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## What's the worst part about being a cross-eyed teacher?
+
+They can't control their pupils.
