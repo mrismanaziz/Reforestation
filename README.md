@@ -1,1 +1,1 @@
-## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
