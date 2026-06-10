@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
