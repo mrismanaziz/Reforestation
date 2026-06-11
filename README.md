@@ -1,1 +1,2 @@
-## When will the little snake arrive? I don't know but he won't be long...
+## Some people say that I never got over my obsession with Phil Collins.
+But take a look at me now.
