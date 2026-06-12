@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## what do you call a dog that can do magic tricks? a labracadabrador
