@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
