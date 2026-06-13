@@ -1,2 +1,2 @@
-## Why did Mozart kill all his chickens?
-Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+"Pop," goes the weasel.
