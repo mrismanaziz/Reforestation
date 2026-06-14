@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Why are ghosts bad liars? Because you can see right through them!
