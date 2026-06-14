@@ -1,2 +1,1 @@
-## What is the best way to carve?
-Whittle by whittle.
+## My boss told me to have a good day... so I went home.
