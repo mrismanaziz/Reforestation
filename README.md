@@ -1,1 +1,2 @@
-## Which side of the chicken has more feathers? The outside.
+## What is the best way to carve?
+Whittle by whittle.
