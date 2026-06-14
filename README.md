@@ -1,1 +1,1 @@
-## Whats a penguins favorite relative? Aunt Arctica.
+## What does a pirate pay for his corn? A buccaneer!
