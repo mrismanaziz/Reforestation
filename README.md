@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## When is a door not a door? When it's ajar.
