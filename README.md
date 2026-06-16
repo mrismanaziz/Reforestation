@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## I just wrote a book on reverse psychology. Do not read it!
