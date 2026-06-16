@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## What kind of pants do ghosts wear? Boo jeans.
