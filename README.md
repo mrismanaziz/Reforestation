@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## What kind of pants do ghosts wear? Boo jeans.
