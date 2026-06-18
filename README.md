@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
