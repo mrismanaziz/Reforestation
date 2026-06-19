@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
