@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
