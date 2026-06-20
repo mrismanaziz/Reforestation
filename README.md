@@ -1,1 +1,1 @@
-## What do you call two barracuda fish?  A Pairacuda!
+## What do vegetarian zombies eat? Grrrrrainnnnnssss.
