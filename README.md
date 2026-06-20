@@ -1,1 +1,3 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## What was the pumpkin’s favorite sport?
+
+Squash.
