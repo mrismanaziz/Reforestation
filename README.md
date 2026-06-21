@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## What does a clock do when it's hungry? It goes back four seconds!
