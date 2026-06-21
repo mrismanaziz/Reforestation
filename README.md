@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## Whoever invented the knock-knock joke should get a no bell prize.
