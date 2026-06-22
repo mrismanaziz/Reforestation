@@ -1,1 +1,1 @@
-## what happens when you cross a sheep with a kangaroo ? A woolly jumper!
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
