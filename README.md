@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## what happens when you cross a sheep with a kangaroo ? A woolly jumper!
