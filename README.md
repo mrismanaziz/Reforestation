@@ -1,1 +1,3 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## What is the difference between ignorance and apathy?
+
+I don't know and I don't care.
