@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Why was the strawberry sad? Its parents were in a jam.
