@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Whoever invented the knock-knock joke should get a no bell prize.
