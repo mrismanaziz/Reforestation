@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
