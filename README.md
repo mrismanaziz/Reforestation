@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## If at first you don't succeed, sky diving is not for you!
