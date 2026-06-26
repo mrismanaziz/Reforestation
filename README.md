@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## I have kleptomania, but when it gets bad, I take something for it.
