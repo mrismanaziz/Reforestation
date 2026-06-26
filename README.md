@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
