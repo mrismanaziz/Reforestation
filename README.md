@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
