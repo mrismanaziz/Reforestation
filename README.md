@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## Where does Napoleon keep his armies? In his sleevies.
