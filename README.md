@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## The biggest knight at King Arthur's round table was Sir Cumference. He acquired his size from eating too much pi.
