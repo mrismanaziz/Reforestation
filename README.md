@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## You can't run through a camp site. You can only ran, because it's past tents.
