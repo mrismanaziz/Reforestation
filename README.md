@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## Why are graveyards so noisy? Because of all the coffin.
