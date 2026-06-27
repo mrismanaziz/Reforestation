@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## I thought about going on an all-almond diet. But that's just nuts.
