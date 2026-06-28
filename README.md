@@ -1,2 +1,1 @@
-## Where do cats write notes?
-Scratch Paper!
+## Why was the picture sent to prison? It was framed.
