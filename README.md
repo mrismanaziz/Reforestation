@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Don't tell secrets in corn fields. Too many ears around.
