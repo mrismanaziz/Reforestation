@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## My boss told me to have a good day... so I went home.
