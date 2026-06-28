@@ -1,1 +1,2 @@
-## I'll tell you what often gets over looked... garden fences.
+## Where do cats write notes?
+Scratch Paper!
