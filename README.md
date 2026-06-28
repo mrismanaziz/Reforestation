@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
