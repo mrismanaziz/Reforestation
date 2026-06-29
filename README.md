@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
