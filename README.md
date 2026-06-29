@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
