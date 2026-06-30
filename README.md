@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
