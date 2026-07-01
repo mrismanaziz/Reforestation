@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
