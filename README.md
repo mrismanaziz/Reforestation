@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## Sore throats are a pain in the neck!
