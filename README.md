@@ -1,1 +1,1 @@
-## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
