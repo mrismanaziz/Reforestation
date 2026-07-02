@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## My wife said I was immature. So I told her to get out of my fort.
