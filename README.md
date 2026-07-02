@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## Did you hear about the two thieves who stole a calendar? They each got six months.
